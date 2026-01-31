@@ -1,81 +1,72 @@
-Welcome to the Deptford Library Cinema Club!
+Hope you’ve all had a great start to the year!
 
-Our current program includes:
+Before we get to the schedule, I just want to highlight the first Films in the Foyer screening of 2026! As part of Women’s History month in March, there will be number of fantastic events organised by our wonderful colleagues at Deptford Lounge, including our screening of feminist classic 9 to 5 (1980) on Thursday March 26th! If you’d like to grab your free tickets, please click here <https://lewisham.events.mylibrary.digital/event?id=268989>, and you can check out the rest of the Women’s History Month events on the Deptford Lounge website here <https://deptfordlounge.org.uk/whats-on/?_paged=2>.
 
-• Film screenings every Thursday at 6:00pm
-• Discussion group every last Thursday of the month at 6:00pm – come and discuss the month’s screenings with biscuits and fellow film fans!
-• Additional screening every last Friday of the month at 2:00pm in collaboration with The Albany's Meet Me At club <https://www.thealbany.org.uk/get-involved/meet-me/>
-• The screenings and discussion group are held in meeting rooms 1&2 on the ground floor of the library. If you need directions just ask at the library front desk!
-• All Cinema Club screenings and events are free to attend and open to all – no need to book (unless otherwise stated), and please do bring along a friend if you’d like.
-• Occasionally we will advertise Films in the Foyer, our special event screenings where we project a film on the big screen in the front foyer of the library. For these screenings you will need to register for a free ticket, but when this is the case I will always let you know.
-• I always bring a packet of biscuits to the discussion group, but if you’d like to bring your own snacks to the screening you’re very welcome – as long as the room is left clean and tidy!
-• We always use subtitles when available, and there is plenty of space for wheelchair users. If you have any other questions regarding accessibility please feel free to send me an email <mailto:madeleine.davies%40lewisham.gov.uk> or call the library on 020 8314 7299
-By signing up to the newsletter, you’ll receive the new film schedule in your inbox at the end of every month, and vote for the films you’d most like to see next! If you ever have any suggestions or feedback about the club, please feel free to send me an email. <mailto:madeleine.davies%40lewisham.gov.uk>
+Thank you once again for all the incredible suggestions for February, I absolutely love going through them all and discovering new films I’ve never heard of. I’m really happy with this month’s selections – they are all films I’ve been wanting to show and/or watch since starting the club! Also, just a reminder that if you would like to do an intro for any of this month’s films, you can find more info and a link to sign up at the end of the email.
 
-Film Schedule for January – Forgotten Blockbusters
+Film Schedule for February – LGBT+ History Month
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 
-Run Lola Run
+Happy Together
 
-Tom Tykwer – 1998 – 1H21M – Cert. 15
+Wong Kar-wai – 1997 – 1H36M – Cert. 15
 
-Thursday 8th January – 6:00pm
+Thursday 5th February – 6:00pm
 
-After her boyfriend botches a money delivery, Lola has 20 minutes to come up with 100,000 Deutschmarks in order to save his life. Following Lola in real time, the film explores the themes of fate and chance by offering three different versions of the allotted twenty minutes – each one radically different depending on one small decision Lola makes.
-Run Lola Run was a huge box office success on its release, especially in it’s home country of Germany. Like every good blockbuster, the film also left an indelible mark on various media released in its wake, inspiring multiple video games and music videos of the late 90s and early 2000s, and of course securing a reference in The Simpsons. Perhaps because it is so steeply entrenched in the aesthetic of the time, Run Lola Run seems to have fallen out of the current cinematic zeitgeist, despite being re-released in select US theatres for its 25th anniversary last year. It’s also not available on streaming platforms in the UK, so if you’d like to watch this hidden gem then come on down to Deptford Library!
+A couple travels from Hong Kong to Argentina to revive their relationship but experience turbulence when both men’s lives drift in separate directions. The film’s English title is inspired by the The Turtles’ song of the same name, which is covered by Danny Chung on the film’s soundtrack, but the Chinese title (春光乍洩) is rather beautifully translated as ‘Spring Light at First Glance’. The film also won Wong Kar Wai Best Director at Cannes Film Festival, and continues to appear on best-of-all-time film lists to this day.
 
-You can watch the trailer for Run Lola Run here <https://www.youtube.com/watch?v=ZCYnsUdO6H0>
+You can watch the trailer for Happy Together here <https://www.youtube.com/watch?v=5VPvFaAWX9U>
 
-You can read more reviews for Run Lola Run on Letterboxd <https://letterboxd.com/film/run-lola-run/>
+You can read more reviews for Happy Together on Letterboxd <https://letterboxd.com/film/happy-together-1997/>
 
-Nomadland
+Portrait of a Lady on Fire
 
-Chloé Zhao – 2020 – 1H47M – Cert. 12
+Céline Sciamma – 2019 – 2H01M – Cert. 15
 
-Thursday 15th January – 6:00pm
+Thursday 12th February – 6:00pm
 
-After the company she worked for shuts down, a widower in her sixties gives up her home and embarks on a journey through the western United States to live as a van-dwelling nomad. She soon meets and bonds with fellow nomads who teach her survival and self-sufficiency skills for the road. Nomadland went on to dominate its respective award season, as well as setting multiple records with Zhao becoming the first Asian woman (and only the second woman full stop) to win Best Director at the Academy Awards, and Frances McDormand becoming the first person to win Academy Awards as both producer and performer for the same film. Although the film was technically a commercial success (it’s gross revenue far exceeded its relatively low production budget of $5 million), due to the Covid restrictions at the time, it remains the lowest grossing Best Picture winner in decades. Consequently, like many films released at the time, Nomadland remains a criminally under-watched piece of cinema.
+On an isolated island in Brittany at the end of the eighteenth century, Marianne (Noémie Merlant) is commissioned to paint a wedding portrait of young aristocrat Héloïse (Adèle Haenel). Both stubbornly fighting in their own ways against the restrictions that bind them as young women in an oppressive society, the two quickly fall into a passionate love affair. Deciding to make the film without a conventional score, the film is worth watching simply for director Celine Sciamma’s single use of an original song composed by Para One and Arthur Simonini, culminating in a truly breath-taking scene of cinematic magic.
 
-You can watch the trailer for Nomadland here <https://www.youtube.com/watch?v=ZCYnsUdO6H0>
+You can watch the trailer for Portrait of a Lady on Fire here <https://www.youtube.com/watch?v=Bn_-YoG69Sw>
 
-You can read more reviews for Nomadland on Letterboxd <https://letterboxd.com/film/nomadland/>
+You can read more reviews for Portrait of a Lady on Fire on Letterboxd <https://letterboxd.com/film/portrait-of-a-lady-on-fire/>
 
-Heavenly Creatures
+Young Soul Rebels
 
-Peter Jackson – 1994 – 1H39M – Cert. 18
+Isaac Julien – 1991 – 1H45M – Cert. 18
 
-Thursday 22nd January – 6:00pm
+Thursday 19th February – 6:00pm
 
-Based on the notorious real-life Palker-Hulme murder case, Heavenly Creatures follows precocious teenager Juliet after she moves to New Zealand with her family, soon befriending the quiet, brooding Pauline through their shared love of fantasy and literature. This friendship gradually develops into an intense and obsessive bond, with terrible consequences. I will admit calling this film a blockbuster is slightly dubious, (though it did do well at the box office and got a smattering of award noms and wins), but I’m giving it a pass because it was directed by Jackson right before he would arguably go on to become one of the reigning masters of the blockbuster. It also became the star vehicle for Kate Winslet, as well as Melanie Lynskey (who I would argue is also a criminally underrated actress – if you’ve seen Yellowjackets you’ll know what I mean).
+In this part-thriller, part-comedy, part-love story set in London in 1977, days before the Queen’s Silver Jubilee celebrations, the hedonistic world of pirate DJs Chris and Caz is shattered when a close friend is killed while cruising in the local park. The black community suspect the National Front, but the police pull Chris in as a suspect. In a celebration of youth culture filmed just across the river in Dalston, Young Soul Rebels remains a bold and stylish slice of British Cinema.
 
-You can watch the trailer for Heavenly Creatures here <https://www.youtube.com/watch?v=ZCYnsUdO6H0>
+You can watch the trailer for Young Soul Rebels here <https://www.youtube.com/watch?v=Y9Ppw0wu-gE>
 
-You can read more reviews for Heavenly Creatures on Letterboxd <https://letterboxd.com/film/heavenly-creatures/>
+You can read more reviews for Young Soul Rebels on Letterboxd <https://letterboxd.com/film/young-soul-rebels/>
 
 Discussion Group
 
-Thursday 29th January – 6:00-7:00pm
+Thursday 26th February – 6:00-7:00pm
 
-Come and discuss this month’s screenings in an informal and relaxed setting with fellow film enthusiasts. There’s no requirement to have attended any/all of the screenings, just come along for a biscuit and a chat!
+Come and discuss this month’s films with fellow cinema enthusiasts and a biscuit or two!
 
-Chef
+My Beautiful Laundrette
 
-Jon Favreau – 2014 – 1H54M – Cert. 15
+Hanif Kureishi – 1985 – 1H38M – Cert. 15
 
-Friday 30th January – 2:00pm
+Friday 27th February – 2:00pm
 
-When Chef Carl Casper suddenly quits his job at a prominent Los Angeles restaurant after refusing to compromise his creative integrity for its controlling owner, he is left to figure out what’s next. Finding himself in Miami, he teams up with his ex-wife, his friend and his son to launch a food truck. Taking to the road, Chef Carl goes back to his roots to reignite his passion for the kitchen – and zest for life and love. Again, this film is technically an indie, but was made by another Blockbuster giant Jon Favreau, straight off the back of directing the Iron Man movies. Favreau’s big Hollywood status also allowed him to pull in some huge names for the film, including Robert Downey Jr, Dustin Hoffman, Scarlett Johansson and Sofia Vergara. This film has definitely cemented its status as a cult favourite in the food world (Chef walked so that FX’s The Bear could run), and has been praised by food critics and restaurateurs alike for its realistic depiction of the culinary world. Cinematically, however, the film has not received enough credit – although be warned, it will make you hungry!
+Set in London during the Thatcher years, My Beautiful Laundrette follows Omar (Gordon Warnecke), a British man of Pakistani origin, and his reunion and eventual romance with his childhood friend Johnny (Daniel Day-Lewis), now a street punk. Together they manage a rundown laundrette while dealing with the cultural tensions within their family and community. Originally shot in 16mm for Channel 4 on a low budget, it was met with such critical acclaim at the Edinburgh Film Festival that it was instead picked up for a cinematic release, and has remained one of the most celebrated films of the 20th century.
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 
-You can watch the trailer for Chef here <https://www.youtube.com/watch?v=5xlHJAEaf-s>
+You can watch the trailer for My Beautiful Laundrette here <https://www.youtube.com/watch?v=e5JtE83ksg0>
 
-You can read more reviews for Chef on Letterboxd <https://letterboxd.com/film/chef/>
+You can read more reviews for My Beautiful Laundrette on Letterboxd <https://letterboxd.com/film/my-beautiful-laundrette/>
 
 Now you know this month’s films – fancy doing an introduction?
 
-If you’d like to introduce any of the films this month please complete this short form. <https://forms.office.com/e/7VqGiNnuCr>
+If you’d like to introduce any of the films this month please complete this short form. <https://forms.office.com/e/ySguhM3ne4>
 
 The purpose of this cinema club has always been to help connect local film fans, and celebrate our love of cinema as a group. I know we have some very passionate and knowledgeable members out there, so don’t be shy! You don’t have to have any experience of public speaking, and I will be there to support on the day.
 
@@ -86,6 +77,8 @@ Intro guidelines:
 • it’s always good to mention the film’s title, director and time of release to familiarise the audience, but otherwise the focus can be up to you. You can do a general introduction to the film, giving some context to the time it was released and information about the film’s director and production, or you can focus on a particular aspect of the film, such as the music or the cinematography
 If you have any questions, please do get in touch <mailto:madeleine.davies%40lewisham.gov.uk>
 
-Hope to see you at one of our screenings soon!
+As always, if you have any suggestions or feedback please feel free to send me an email. <mailto:madeleine.davies%40lewisham.gov.uk>
+
+Best wishes,
 
 Maddie – The Library @ Deptford Lounge
