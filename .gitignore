@@ -1,0 +1,9 @@
+# OS / local
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Editor / backup
+*~
+.*.swp
+.*.swo
