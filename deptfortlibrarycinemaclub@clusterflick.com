@@ -1,83 +1,132 @@
-Hope you’ve all had a great start to the year!
+As you might already know, this month's films are all about 'women at work', in celebration of Women's History Month and our Films in the Foyer screening of Nine to Five (1980) on the 26th!
 
-Before we get to the schedule, I just want to highlight the first Films in the Foyer screening of 2026! As part of Women’s History month in March, there will be number of fantastic events organised by our wonderful colleagues at Deptford Lounge, including our screening of feminist classic 9 to 5 (1980) on Thursday March 26th! If you’d like to grab your free tickets, please click here <https://lewisham.events.mylibrary.digital/event?id=268989>, and you can check out the rest of the Women’s History Month events on the Deptford Lounge website here <https://deptfordlounge.org.uk/whats-on/?_paged=2>.
+If you haven't secured your free tickets for Nine to Five yet, please click here: https://lewisham.events.mylibrary.digital/event?id=268989, and you can check out the rest of the Women's History Month events on the Deptford Lounge website here: https://deptfordlounge.org.uk/whats-on/?_paged=2. As always, the screening is free, but if you're planning on coming please do register for a ticket – it's really helpful for us to have an idea of numbers beforehand!
 
-Thank you once again for all the incredible suggestions for February, I absolutely love going through them all and discovering new films I’ve never heard of. I’m really happy with this month’s selections – they are all films I’ve been wanting to show and/or watch since starting the club! Also, just a reminder that if you would like to do an intro for any of this month’s films, you can find more info and a link to sign up at the end of the email.
+As usual, none of this month's films are easily available on streaming platforms, so catch them while you can!
 
-Film Schedule for February – LGBT+ History Month
+To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of this email!
+
+Film Schedule for March – Women at Work
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 
-Happy Together
+Tampopo
 
-Wong Kar-wai – 1997 – 1H36M – Cert. 15
+Juzo Itami – 1985 – 1H54M – Cert. 15 – Japan
 
-Thursday 5th February – 6:00pm
+Thursday 5th March – 6:00pm
 
-A couple travels from Hong Kong to Argentina to revive their relationship but experience turbulence when both men’s lives drift in separate directions. The film’s English title is inspired by the The Turtles’ song of the same name, which is covered by Danny Chung on the film’s soundtrack, but the Chinese title (春光乍洩) is rather beautifully translated as ‘Spring Light at First Glance’. The film also won Wong Kar Wai Best Director at Cannes Film Festival, and continues to appear on best-of-all-time film lists to this day.
+In this humorous paean to the joys of food, a pair of truck drivers happen onto a decrepit roadside shop selling ramen noodles. The widowed owner, Tampopo, asks them to help her turn her establishment into a paragon of the "art of noodle-soup making". Interspersed are satirical vignettes about the importance of food to different aspects of human life. The film's tagline, "the first ramen western" – a play on the term spaghetti Western – gives a taste of the film's comedy, which Roger Ebert has likened to the work of Jaques Tati as "a bemused meditation on human nature".
 
-You can watch the trailer for Happy Together here <https://www.youtube.com/watch?v=5VPvFaAWX9U>
+You can watch the trailer for Tampopo here: https://www.youtube.com/watch?v=0RtXSon0yMw
 
-You can read more reviews for Happy Together on Letterboxd <https://letterboxd.com/film/happy-together-1997/>
+You can read more reviews for Tampopo on Letterboxd: https://letterboxd.com/film/tampopo/
 
-Portrait of a Lady on Fire
+The Chambermaid
 
-Céline Sciamma – 2019 – 2H01M – Cert. 15
+Lila Avilés – 2018 – 1H42M – Cert. 15 – Mexico
 
-Thursday 12th February – 6:00pm
+Thursday 12th March – 6:00pm
 
-On an isolated island in Brittany at the end of the eighteenth century, Marianne (Noémie Merlant) is commissioned to paint a wedding portrait of young aristocrat Héloïse (Adèle Haenel). Both stubbornly fighting in their own ways against the restrictions that bind them as young women in an oppressive society, the two quickly fall into a passionate love affair. Deciding to make the film without a conventional score, the film is worth watching simply for director Celine Sciamma’s single use of an original song composed by Para One and Arthur Simonini, culminating in a truly breath-taking scene of cinematic magic.
+Eve, a young chambermaid at a luxurious Mexico City hotel, confronts the monotony of long workdays with quiet examinations of forgotten belongings and budding friendships that nourish her newfound and determined dream for a better life. Funnily enough, this film came out in the same year as Alfonso Cuarón's Roma – another delicate reflection on the life of a maid in Mexico – which inevitably overshadowed The Chambermaid upon release. Whilst this may well have made The Chambermaid the inferior film in regards to distribution, in no way should this be seen as a reflection of the film's quality. A truly striking debut from Lila Avilés, I was struck by one Letterboxd reviewer's description of the film as "one full of quiet and withheld emotion that still feels like a scream".
 
-You can watch the trailer for Portrait of a Lady on Fire here <https://www.youtube.com/watch?v=Bn_-YoG69Sw>
+You can watch the trailer for The Chambermaid here: https://www.youtube.com/watch?v=D7qeFD624U4
 
-You can read more reviews for Portrait of a Lady on Fire on Letterboxd <https://letterboxd.com/film/portrait-of-a-lady-on-fire/>
+You can read more reviews for The Chambermaid on Letterboxd: https://letterboxd.com/film/the-chambermaid/
 
-Young Soul Rebels
+Two Days, One Night
 
-Isaac Julien – 1991 – 1H45M – Cert. 18
+Jean-Pierre Dardenne, Luc Dardenne – 2014 – 1H35M – Cert. 15 – France
 
-Thursday 19th February – 6:00pm
+Thursday 19th March – 6:00pm
 
-In this part-thriller, part-comedy, part-love story set in London in 1977, days before the Queen’s Silver Jubilee celebrations, the hedonistic world of pirate DJs Chris and Caz is shattered when a close friend is killed while cruising in the local park. The black community suspect the National Front, but the police pull Chris in as a suspect. In a celebration of youth culture filmed just across the river in Dalston, Young Soul Rebels remains a bold and stylish slice of British Cinema.
+Sandra is a young woman who has only one weekend to convince her colleagues they must give up their bonuses in order for her to keep her job. Starring Marion Cotillard in a career-defining role, the film was a huge critical success and earned Cotillard a Best Actress nomination at the Oscars. Unanimously praised for its unflinchingly realistic depiction of depression on screen, it "still emerges as a psychologically delving and quietly uplifting modern-day morality play" (Emma Dibdin, Digital Spy).
 
-You can watch the trailer for Young Soul Rebels here <https://www.youtube.com/watch?v=Y9Ppw0wu-gE>
+You can watch the trailer for Two Days, One Night here: https://www.youtube.com/watch?v=0ppwJIRqFE0
 
-You can read more reviews for Young Soul Rebels on Letterboxd <https://letterboxd.com/film/young-soul-rebels/>
+You can read more reviews for Two Days, One Night on Letterboxd: https://letterboxd.com/film/two-days-one-night/
 
-Discussion Group
+Nine to Five
 
-Thursday 26th February – 6:00-7:00pm
+Colin Higgins – 1980 – 1H50M – Cert. 15
 
-Come and discuss this month’s films with fellow cinema enthusiasts and a biscuit or two!
+Thursday 26th March – 7:00 – 9:00pm (Doors open 6:30pm)
 
-My Beautiful Laundrette
+Join us for our first Films in the Foyer screening of 2026!
 
-Hanif Kureishi – 1985 – 1H38M – Cert. 15
+Put on your power suits, your blouses and your hair rollers, because on Thursday 26th March we're gonna be workin' 7-9 pm! In the film that made the song of the same name a hit, three female employees of a sexist, egotistical, lying, hypocritical bigot find a way to turn the tables on him. Starring Jane Fonda, Dolly Parton and Lily Fonda, this satirical romp is the perfect way to celebrate Women's History Month!
 
-Friday 27th February – 2:00pm
+The film will start at 7pm, but we advise arriving at least 15 minutes before to grab a seat!
 
-Set in London during the Thatcher years, My Beautiful Laundrette follows Omar (Gordon Warnecke), a British man of Pakistani origin, and his reunion and eventual romance with his childhood friend Johnny (Daniel Day-Lewis), now a street punk. Together they manage a rundown laundrette while dealing with the cultural tensions within their family and community. Originally shot in 16mm for Channel 4 on a low budget, it was met with such critical acclaim at the Edinburgh Film Festival that it was instead picked up for a cinematic release, and has remained one of the most celebrated films of the 20th century.
+You can watch the trailer for Nine to Five here: https://www.youtube.com/watch?v=qni6HOyPNBA
 
-This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
+You can read more reviews for Nine to Five on Letterboxd: https://letterboxd.com/film/nine-to-five/
 
-You can watch the trailer for My Beautiful Laundrette here <https://www.youtube.com/watch?v=e5JtE83ksg0>
+Book your free tickets here!: https://lewisham.events.mylibrary.digital/event?id=268989
 
-You can read more reviews for My Beautiful Laundrette on Letterboxd <https://letterboxd.com/film/my-beautiful-laundrette/>
+His Girl Friday
 
-Now you know this month’s films – fancy doing an introduction?
+Howard Hawks – 1940 – 1H32M – Cert. U – USA
 
-If you’d like to introduce any of the films this month please complete this short form. <https://forms.office.com/e/ySguhM3ne4>
+Friday 27th March – 2:00pm
 
-The purpose of this cinema club has always been to help connect local film fans, and celebrate our love of cinema as a group. I know we have some very passionate and knowledgeable members out there, so don’t be shy! You don’t have to have any experience of public speaking, and I will be there to support on the day.
+Walter Burns is an irresistibly conniving newspaper publisher desperate to woo back his paper's star reporter, who also happens to be his estranged wife. She's threatening to quit and settle down with a new beau, but, as Walter knows, she has a weakness: she can't resist a juicy scoop. Starring Cary Grant and Rosalind Russell, the director Howard Hawks heavily encouraged the two actors to improvise some of their more comedic dialogue. Unimpressed with the quality of her one-liners compared to Grant, Russell hired her own writer to "punch up" her dialogue, which she was able to slip into the scenes given Hawks' encouragement of ad-libbing. Still considered one of the best screw-ball comedies of the period, His Girl Friday is a real good time.
+
+This screening is a collaboration between The Albany's Meet Me At club for over 60's. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
+
+You can watch the trailer for His Girl Friday here: https://www.youtube.com/watch?v=0GYX46Bs1_8
+
+You can read more reviews for His Girl Friday on Letterboxd: https://letterboxd.com/film/his-girl-friday/
+
+Now you know this month's films – fancy doing an introduction?
+
+If you'd like to introduce any of the films this month please complete this short form.: https://forms.office.com/e/LKHXX1xZEU
+
+The purpose of this cinema club has always been to help connect local film fans, and celebrate our love of cinema as a group. I know we have some very passionate and knowledgeable members out there, so don't be shy! You don't have to have any experience of public speaking, and I will be there to support on the day.
 
 Intro guidelines:
 
 • the intro can be anywhere between 1-10 minutes in length
 • you can have a script or you can improvise – whatever works best for you
-• it’s always good to mention the film’s title, director and time of release to familiarise the audience, but otherwise the focus can be up to you. You can do a general introduction to the film, giving some context to the time it was released and information about the film’s director and production, or you can focus on a particular aspect of the film, such as the music or the cinematography
-If you have any questions, please do get in touch <mailto:madeleine.davies%40lewisham.gov.uk>
+• it's always good to mention the film's title, director and time of release to familiarise the audience, but otherwise the focus can be up to you. You can do a general introduction to the film, giving some context to the time it was released and information about the film's director and production, or you can focus on a particular aspect of the film, such as the music or the cinematography
 
-As always, if you have any suggestions or feedback please feel free to send me an email. <mailto:madeleine.davies%40lewisham.gov.uk>
+If you have any questions, please do get in touch: mailto:madeleine.davies@lewisham.gov.uk
+
+Deptford Library Cinema Club FAQs:
+
+When are the film screenings?
+
+Film screenings are every Thursday at 6:00pm, with an additional screening every last Friday of the month at 2:00pm in collaboration with The Albany's Meet Me At club: https://www.thealbany.org.uk/get-involved/meet-me/
+
+Is there a chance to discuss the films afterwards?
+
+Depending on how long the film is – but everyone must have left the building by 9pm (although there are plenty of nice pubs around Deptford if you'd like to continue the conversation!). If you'd like a more in depth chat about the films, you can come to the monthly discussion group which runs every last Thursday of the month from 6:00 – 7:00pm. We have some great chats, and I always bring biscuits!
+
+Where are the screenings and discussion group held?
+
+The screenings and discussion group are held in meeting rooms 1&2 on the ground floor of the library – walk past the front desk and look to your left after the first row of PCs. If you need directions just ask at the library front desk!
+
+Do I need to pay to attend?
+
+No! Like all library events, Deptford Library Cinema Club will always be free to attend.
+
+Do I need to book a ticket?
+
+You don't need to book a ticket for regular Thursday screenings, just come along on the day, and please do bring a friend if you like! Occasionally we will do larger event screenings which you may need to book a ticket for, but I will always let you know beforehand, and it will always be free.
+
+Don't you sometimes do screenings in the front foyer?
+
+Yes! Occasionally we will advertise Films in the Foyer, our special event screenings where we project a film on the big screen in the front foyer of the library. For these screenings you will need to register for a free ticket, but when this is the case I will always let you know.
+
+Can I bring snacks to the screenings?
+
+If you'd like to bring your own snacks to the screening you're very welcome – as long as the room is left clean and tidy! Please avoid any messy food and use the bins provided to dispose of any rubbish.
+
+Are the screenings accessible?
+
+We always use subtitles when available, and there is plenty of space for wheelchair users. Seats are arranged in rows facing the screen with a gap through the middle, but can be easily moved if required. If you have any other questions regarding accessibility please feel free to send me an email: mailto:madeleine.davies@lewisham.gov.uk or call the library on 020 8314 7299
+
+As always, if you have any suggestions or feedback please feel free to send me an email.: mailto:madeleine.davies@lewisham.gov.uk
 
 Best wishes,
 
