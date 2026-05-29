@@ -1,158 +1,160 @@
-Firstly, thanks to all who came out for the opening night of NXDFFF last week! I had a blast. Please do check out the rest of the free festival on the NXDFFF website: https://freefilmfestivals.org/filmfestival/new-cross-deptford/, there’s still lots more amazing film events happening over the weekend, including the closing night bike-powered screening of School of Rock: https://freefilmfestivals.org/event/school-of-rock/ in Telegraph Hill on Sunday!
+Its the last week of Lewisham Libraries Local Film Festival this week! At 6pm today: https://lewisham.events.mylibrary.digital/event?id=339758 we’ll be watching some archive footage from the London Community Video Archive – if anyone is interested in housing activism I highly recommend coming to this one! We’re also very lucky to have filmmaker and researcher Edward Webb-Ingall join us to talk us through the archive. I’m also really excited for tomorrow’s screening: https://lewisham.events.mylibrary.digital/event?id=339759 of shorts at 2pm (including A Portrait of Mr Pink: https://www.horniman.ac.uk/story/the-wonderful-mr-pink/) followed by a Q&A with the filmmakers and a collage workshop inspired by all the films. Hopefully I’ll see some of you there!
 
-Also just wanted to do a quick shout-out to Cheapskate: https://magic.beehiiv.com/v1/01939caa-93fb-4bf2-915c-58bf58fc5734?email=%7B%7Bemail%7D%7D, who have featured our events in their fantastic newsletter a few times now. The free newsletter lands in your inbox every Monday  with a curated roundup of London’s best free events for the week – a great way to plan your evenings and weekend!
+Now onto the schedule! Next month, on the 20th of June, is World Refugee day, so I’ve programmed a month full of films that centre the refugee experience – thanks to all those who voted! I know there might be some assumptions that these films will be full of doom and gloom, but I actually think we’ve got a great mix of both drama and comedy. But most importantly, it’s a great chance to watch some really excellent films that humanise a so often maligned group, and celebrate the power of community and connection. 
 
 
-On to this month’s schedule, which is looking a little different than usual... I’m so so excited to announce the line up to the first ever Lewisham Libraries Local Film Festival!
+Please note there will be no screening on Thursday 4th June. Unfortunately the meeting room is currently out of action, but should be back up and running by the 11th – if there is any change I will send out an update. For this reason, I’ve also scheduled another screening on the last Thursday of the month rather than the regular discussion group, but this will be back up and running in July!
 -----------------------------------------------------------------
-
-Other than May 7th when the library will be used as a poll station for the local election, there will be a screening every Thursday during the usual Deptford Library Cinema Club slots. Instead of features though, this month we’ll be watching a fantastic array of shorts from local filmmakers, local archive footage and a talk courtesy of the London Community Video Archive, as well as a short film screening and collage workshop for the Meet Me At Friday screening! As well as the events at Deptford, we’ll also be showing the film Another Catford at Catford Library with a post-screening Q&A with director Ben Honeybone, and Downham will be screening archive photos and footage all month, as well as hosting a Cinemini SEND Family play session.
-
-As always, screenings will remain free and open to everyone, but this month I would really appreciate if you could book your free place to each screening through the link provided – this will just help me keep track of numbers!
-
-Can’t wait to see you all there and celebrate the incredible creativity, talent and history of our borough!
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for May – Lewisham Libraries Local Film Festival!
+To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of this email!
+-----------------------------------------------------------------
+
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
+
+
+Film Schedule for June – Refugee Cinema
 =================================================================
 
 
-The screenings are all free to attend and open to all. This month I am asking that everyone registers for a free ticket through the links provided for each screening to help me keep track of numbers!
+The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
 
-Please note there will be no screening on Thursday 7th May due to Deptford Library being used as a poll station for the local elections. Don’t forget to vote!
+Please note there will be no screening on Thursday 4th June
 -----------------------------------------------------------------
 
 
-Local Stories: Short Films Screening + Q&A
+Children of Men
 =================================================================
 
 
-Thursday 14th May – Deptford Library – 6:30 – 8:00pm
------------------------------------------------------------------
-
-A selection of short films that offer different snapshots of local stories, followed by a Q&A with the filmmakers. From a portrait of the unofficial King of Deptford (Terry of Terry’s Discount), to an exploration of the 1981 New Cross Massacre, all of these films offer a unique picture of different Lewisham localities, personalities and stories.
-
-Selected Short Films:
-Brockley and Ladywell Cemeteries – Dir. Andrew Dawson
-Debtford – Dir. april forrest lin 林森
-Head Culture 2 Pre Big Bang to Deptford – Dir. Brian Francis and Louise Francis
-King of Deptford – Dir. Sasha Denny & Daisy Allen
-Love Over Gold – Dir. Sasha Denny
-Soldiers From Ends – Dir. Mya Onwugbonu
-Uncanny Waters – Dir. Ray Malone
-
-Click here: https://lewisham.events.mylibrary.digital/event?id=339755 to read a short synopsis for each film. Please note the films may appear in a different order on the day!
-
-
-Get your free ticket for Local Stories: Short Films Screening + Q&A here!: https://lewisham.events.mylibrary.digital/event?id=339755
+Alfonso Cuarón – 2006 – 1H49M – Cert. 15 – England
 -----------------------------------------------------------------
 
 
-Another Catford Screening with Director Q&A
+Thursday 11th June – 6:00pm
+-----------------------------------------------------------------
+
+In 2027, in a chaotic world in which humans can no longer procreate, a former activist agrees to help transport a miraculously pregnant woman to a sanctuary at sea, where her child’s birth may help scientists save the future of humankind.
+
+You can watch the trailer for Children of Men here: https://letterboxd.com/film/children-of-men/
+
+You can read more reviews for Children of Men on Letterboxd: https://www.youtube.com/watch?v=2VT2apoX90o
+
+
+The Old Oak
 =================================================================
 
 
-Saturday 16th May – Catford Library – 2:30 – 4:30pm
------------------------------------------------------------------
-
-Another Catford is a documentary film which traces Catford’s journey from an agricultural past, through its heyday as an entertainment centre in the early 20th century, to post-war rebuilding and beyond. Heritage Consultant Jon Wright puts this often-derided south-east London suburb on the cultural map, and makes the case for keeping brutalist buildings under threat from regeneration plans.
-
-After the film, we are very lucky to be joined for a post-screening Q&A with director Ben Honeybone!
-
-
-Get your free ticket for Another Catford here!: https://lewisham.events.mylibrary.digital/event?id=339756
+Ken Loach – 2023 – 1H53M – Cert. 15 – England
 -----------------------------------------------------------------
 
 
-Local Filmmakers: Short Films Screening + Q&A
+Thursday 18th June – 6:00pm
+-----------------------------------------------------------------
+
+A pub landlord in a previously thriving mining community struggles to hold onto his pub. Meanwhile, tensions rise in the town when Syrian refugees are placed in the empty houses in the community.
+
+You can watch the trailer for The Old Oak here: https://letterboxd.com/film/the-old-oak/
+
+You can read more reviews for The Old Oak on Letterboxd: https://www.youtube.com/watch?v=Fwb0c5zqsyM
+
+
+Le Havre
 =================================================================
 
 
-Thursday 21st May – Deptford Library – 6:30 – 8:00pm
------------------------------------------------------------------
-
-A short film showcase of the filmmaking talent in Lewisham! From Japanese paper theatre to a spontaneous pilgrimage to Switzerland, in content these films span across countries and creative forms, but they were all made here in Lewisham. Followed by a Q&A with the local filmmakers.
-
-Selected Short Films:
-a border of flat stones – Dir. Cáit McClay and Éiméar McClay
-Cupids – Dir. Nick Grills
-A Friend of the Devil – Dir. Freddie Christie
-Marcia’s Medium Matcmakers – Dir. Randa Ray
-Poplars – Dir. Alexandros Vounatsos
-SNEEZE – Dir. Gareth Brierley
-The Spider’s Thread – Dir. Aya Nakamura
-
-Click here: https://lewisham.events.mylibrary.digital/event?id=339757 to read a short synopsis for each film. Please note the films may appear in a different order on the day!
-
-
-Get your free ticket for Local Filmmakers: Short Films Screening + Q&A here!: https://lewisham.events.mylibrary.digital/event?id=339757
+Aki Kaurismäki – 2011 – 1H33M – Cert. PG – France
 -----------------------------------------------------------------
 
 
-London Community Video Archive Screening and Talk
+Thursday 25th June – 6:00pm
+-----------------------------------------------------------------
+
+In the French harbor city of Le Havre, an elderly shoeshiner with an ailing wife crosses paths with a young African refugee pursued by the police for deportation.
+
+You can watch the trailer for Le Havre here: https://www.youtube.com/watch?v=BqhAe0gx5c4
+
+You can read more reviews for Le Havre on Letterboxd: https://letterboxd.com/film/le-havre/
+
+
+Limbo
 =================================================================
 
 
-Thursday 28th May – Deptford Library – 6:00 – 8:00pm
------------------------------------------------------------------
-
-A visual tour through the London Community Video Archive: https://the-lcva.co.uk/’s footage from Albany Video, including film Beyond Our Ken, lead by filmmaker and researcher Edward Webb-Ingall. Albany Video was a video production and distribution company based in The Albany Theatre just across the road from Deptford Library, operating from the mid 70’s to the early 90s. They made several productions for Channel 4, and focused on topics of activism, community and social justice. The London Community Video Archive (LCVA) collects, preserves and shares community videos made between 1969 and 1994 in London and the South East.
-
-
-Get your free ticket for London Community Video Archive Screening and Talk here!: https://lewisham.events.mylibrary.digital/event?id=339758
+Ben Sharrock – 2020 – 1H43M – Cert. 12 – Scotland
 -----------------------------------------------------------------
 
 
-Outside the Lines: Short Films Screening and Collage Workshop
+Friday 26th June – 2:00pm
+-----------------------------------------------------------------
+
+An offbeat observation of refugees waiting to be granted asylum on a fictional remote Scottish island. It focuses on Omar, a young Syrian musician who is burdened by the weight of his grandfather’s oud, which he has carried all the way from his homeland.
+
+
+This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
+-----------------------------------------------------------------
+
+You can watch the trailer for Limbo here: https://letterboxd.com/film/limbo-2020-1/
+
+You can read more reviews for Limbo on Letterboxd: https://www.youtube.com/watch?v=3O--8AuuhgA
+
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
+
+
+Deptford Library Cinema Club FAQs:
 =================================================================
 
 
-Friday 29th May – Deptford Library – 2:00 – 5:00pm
+When are the film screenings?
 -----------------------------------------------------------------
 
-Join us for a screening and collage workshop in celebration of creative practices that defy expectations. For the first hour of the session, we’ll be screening a number of films made by and in association with The Albany’s Meet Meet Me At club: https://www.thealbany.org.uk/take-part/meet-me and their partner organisation Entelechy Arts: https://entelechyarts.org/, including a film about Entelechy Arts Associate Director Hannah’s dance practice as a non-verbal wheelchair user, a Meet Me At member’s exhibition of his prolific paintings, and some fascinating Entelechy archive footage. We’ll also be screening artist Helena Appio’s A Portrait of Mr Pink – a short film about the man behind everyone’s favourite house on Loampit Hill. The film screenings will be followed by a chance to chat with the film directors, before embarking on a collage workshop lead by Sarah Bhandari, where you’ll be able to produce your own work of art in response to the films!
+Film screenings are every Thursday at 6:00pm, with an additional screening every last Friday of the month at 2:00pm in collaboration with The Albany’s Meet Me At club: https://www.thealbany.org.uk/get-involved/meet-me/
 
 
-This screening is a collaboration between The Albany’s Meet Me At club for over 60’s: https://www.thealbany.org.uk/take-part/meet-me. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
+Do I need to pay to attend?
 -----------------------------------------------------------------
 
+No! Like all library events, Deptford Library Cinema Club will always be free to attend.
 
-Get your free ticket for Outside the Lines: Short Films Screening and Collage Workshop here!: https://lewisham.events.mylibrary.digital/event?id=339759
+
+Do I need to book a ticket?
 -----------------------------------------------------------------
 
-
-Cinemini x SEND Families Cinematic Play
-=================================================================
+You don’t need to book a ticket for regular Thursday screenings, just come along on the day, and please do bring a friend if you like! Occasionally we put on separate event screenings which you may need to book a ticket for, but I will always let you know beforehand, and it will always be free.
 
 
-Saturday 30th May – Downham Library – 2:30 – 4:00pm
+Is there a chance to discuss the films afterwards?
 -----------------------------------------------------------------
 
+Depending on how long the film is – but everyone must have left the building by 9pm (although there are plenty of nice pubs around Deptford if you’d like to continue the conversation!). If you’d like a more in depth chat about the films, you can come to the monthly discussion group which runs every last Thursday of the month from 6:00 – 7:00pm. We have some great chats, and I always bring biscuits!
 
-This Cinemini session is specifically for families with SEN, disabilities and neurodiversity. Booking is essential as spaces are limited.
+
+Where are the screenings and discussion group held?
 -----------------------------------------------------------------
 
-Downham SEND Families Sessions are partnering with Small World Cinema for a special Cinemini session in May half-term! The session will involve nature-themed cinematic sensory play with relaxed short film screenings, immersive projectors, lightboxes, and colours galore! We’ll dive into all things cinema, using play to explore storytelling and gain hands-on early literacy skills. Inspired by the beautiful Downham Fields and Hither Green’s fleet of parakeets on our doorstep, this session with be nature-themed.
-
-If you have any questions or need specific access information for your child, please email Kate at downhamlibrary@lewisham.gov.uk.
+The screenings and discussion group are held in meeting rooms 1&2 on the ground floor of the library – walk past the front desk and look to your left after the first row of PCs. If you need directions just ask at the library front desk! If you’d like to get a sense of the space ahead of time, you can click here: https://www.accessable.co.uk/london-borough-of-lewisham/access-guides/deptford-lounge#47DD90F8-95BB-4811-8D1B-3084168D035A to view a full accessibility guide with photos.
 
 
-Get your free ticket for Cinemini x SEND Families Cinematic Play here!: https://lewisham.events.mylibrary.digital/event?id=338310
+Don’t you sometimes do screenings in the front foyer?
 -----------------------------------------------------------------
 
-
-Downham Through the Archives
-=================================================================
+Yes! Occasionally we will advertise Films in the Foyer, our special event screenings where we project a film on the big screen in the front foyer of the library. For these screenings you will need to register for a free ticket, but when this is the case I will always let you know. 
 
 
-Downham Library – Library opening hours
+Can I bring snacks to the screenings?
 -----------------------------------------------------------------
 
-Visit Downham library to view an ongoing loop of archive footage and images of Downham and the surrounding areas.
+If you’d like to bring your own snacks to the screening you’re very welcome – as long as the room is left clean and tidy! Please avoid any messy food and use the bins provided to dispose of any rubbish. 
+
+
+Are the screenings accessible?
+-----------------------------------------------------------------
+
+We always use subtitles when available, and there is plenty of space for wheelchair users. Seats are arranged in rows facing the screen with a gap through the middle, and can be easily moved if required. If you have any other questions regarding accessibility please feel free to send me an email: mailto:madeleine.davies@lewisham.gov.uk or call the library on 020 8314 7299. You can also click here: https://www.accessable.co.uk/london-borough-of-lewisham/access-guides/deptford-lounge#47DD90F8-95BB-4811-8D1B-3084168D035A for a full accessibility guide for Deptford Lounge. 
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
