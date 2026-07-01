@@ -1,10 +1,12 @@
-Its the last week of Lewisham Libraries Local Film Festival this week! At 6pm today: https://lewisham.events.mylibrary.digital/event?id=339758 we’ll be watching some archive footage from the London Community Video Archive – if anyone is interested in housing activism I highly recommend coming to this one! We’re also very lucky to have filmmaker and researcher Edward Webb-Ingall join us to talk us through the archive. I’m also really excited for tomorrow’s screening: https://lewisham.events.mylibrary.digital/event?id=339759 of shorts at 2pm (including A Portrait of Mr Pink: https://www.horniman.ac.uk/story/the-wonderful-mr-pink/) followed by a Q&A with the filmmakers and a collage workshop inspired by all the films. Hopefully I’ll see some of you there!
+I hope everyone is holding up ok in this heat! If you need a space to cool down, we’ve enlisted some industrial fans at Deptford Library which are proving fairly effective.
 
-Now onto the schedule! Next month, on the 20th of June, is World Refugee day, so I’ve programmed a month full of films that centre the refugee experience – thanks to all those who voted! I know there might be some assumptions that these films will be full of doom and gloom, but I actually think we’ve got a great mix of both drama and comedy. But most importantly, it’s a great chance to watch some really excellent films that humanise a so often maligned group, and celebrate the power of community and connection. 
+This month’s theme is disability pride! All the films selected offer a sensitive and human portrayal of people who were either born with or developed a disability through the process of aging or external forces, and bring close examination to how the world around us can either help or hinder the less able-bodied. Incidentally, its also a pretty great line-up of films, so thanks to all who voted – I can’t wait to watch!
 
+July will also see the return of our monthly discussion group on the last Thursday of the month! Even if you haven’t been before, please do come along, grab a biscuit and enjoy a discussion about this month’s films!
 
-Please note there will be no screening on Thursday 4th June. Unfortunately the meeting room is currently out of action, but should be back up and running by the 11th – if there is any change I will send out an update. For this reason, I’ve also scheduled another screening on the last Thursday of the month rather than the regular discussion group, but this will be back up and running in July!
------------------------------------------------------------------
+In other news, I have set up an official Letterboxd account for Deptford Library Cinema Club: https://letterboxd.com/deptfordlibrary/! If you’re into cinema, Letterboxd is a fantastic site where you can log and review any films you watch, as well as see what your friends and other Letterboxd users are watching. It’s a great resource to find interesting films you might not have heard of, and lets you know where you can watch any film either on streaming or in cinemas. You can also display your top four favourite films – the top four on the Deptford Library account will be the most voted for films since the club began!
+
+Unfortunately, due to our licensing restrictions, we can only advertise the films we’re screening within the building of the library or through direct communications (like this newsletter!), so my emails will remain the best way to keep up with our film showings. However, starting from this month, I will also be making a list on Letterboxd of the upcoming films for each month. This list will only be available to view if you click the link (which I will include in every newsletter), but once you have clicked, it will be another way of quickly seeing the programme for the club! Here is the link: https://boxd.it/VhLDi$CSgGhILAT9cZJWlp for this month’s schedule on Letterboxd.
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -15,92 +17,134 @@ To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of th
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for June – Refugee Cinema
+Film Schedule for July – Disability Pride
 =================================================================
 
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
-
-Please note there will be no screening on Thursday 4th June
------------------------------------------------------------------
+To view the full schedule on Letterboxd, please click here!: https://boxd.it/VhLDi$CSgGhILAT9cZJWlp
 
 
-Children of Men
+A Simple Life
 =================================================================
 
 
-Alfonso Cuarón – 2006 – 1H49M – Cert. 15 – England
+Ann Hui – 2011 – 1H58M – Cert. PG – Hong Kong
 -----------------------------------------------------------------
 
 
-Thursday 11th June – 6:00pm
+Thursday 2nd July – 6:00pm
 -----------------------------------------------------------------
 
-In 2027, in a chaotic world in which humans can no longer procreate, a former activist agrees to help transport a miraculously pregnant woman to a sanctuary at sea, where her child’s birth may help scientists save the future of humankind.
+After suffering a stroke, housemaid to film producer Roger (Andy Lau)  Chun-To (Deanie Ip) is forced to retire. With the help of Roger, she moves into a nursing home where he goes to visit her in-between jobs. A quietly moving film from the much celebrated Ann Hui, A Simple Life deftly explores the emotional intricacies of being an adult who was largely raised by a housemaid – a social phenomenon that is fairly common in Hong Kong. Ironically, Hui herself considered retiring after making this film, but changed her mind after the film’s resounding box office and critical success.
 
-You can watch the trailer for Children of Men here: https://letterboxd.com/film/children-of-men/
+You can watch the trailer for A Simple Life here: https://www.youtube.com/watch?v=LGerZCQwvjE
 
-You can read more reviews for Children of Men on Letterboxd: https://www.youtube.com/watch?v=2VT2apoX90o
+You can read more reviews for A Simple Life on Letterboxd: https://letterboxd.com/film/a-simple-life/
 
 
-The Old Oak
+I Swear
 =================================================================
 
 
-Ken Loach – 2023 – 1H53M – Cert. 15 – England
+Kirk Jones – 2025 – 2H01M – Cert. 15 – England
 -----------------------------------------------------------------
 
 
-Thursday 18th June – 6:00pm
+Thursday 9th July – 6:00pm
 -----------------------------------------------------------------
 
-A pub landlord in a previously thriving mining community struggles to hold onto his pub. Meanwhile, tensions rise in the town when Syrian refugees are placed in the empty houses in the community.
+Inspired by the life of John Davidson, charting his journey from a misunderstood teenager in 1980’s Britain to a present day advocate for the understanding and acceptance of Tourette Syndrome. Diagnosed aged fifteen, John navigates his way against the odds through troubled teenage years and into adulthood, finding inspiration in the kindness of others to discover his true purpose in life. Starring a stellar supporting cast of British talent, including Maxine Peake, Shirley Henderson, and Peter Mullan, the film also made waves at this year’s BAFTA’S, including a surprise win for Robert Aramayo as Best Actor.
 
-You can watch the trailer for The Old Oak here: https://letterboxd.com/film/the-old-oak/
+You can watch the trailer for I Swear here: https://www.youtube.com/watch?v=oeWqQN3snCU
 
-You can read more reviews for The Old Oak on Letterboxd: https://www.youtube.com/watch?v=Fwb0c5zqsyM
+You can read more reviews for I Swear on Letterboxd: https://letterboxd.com/film/i-swear/
 
 
-Le Havre
+Safe
 =================================================================
 
 
-Aki Kaurismäki – 2011 – 1H33M – Cert. PG – France
+Todd Haynes – 1995 – 1H59M – Cert. 15 – USA
 -----------------------------------------------------------------
 
 
-Thursday 25th June – 6:00pm
+Thursday 16th July – 6:00pm
 -----------------------------------------------------------------
 
-In the French harbor city of Le Havre, an elderly shoeshiner with an ailing wife crosses paths with a young African refugee pursued by the police for deportation.
+Carol White, a Los Angeles housewife in the late 1980s, sees her monotonous life abruptly change when she becomes sick with a mysterious illness which she believes is caused by the environment around her. Although Safe underperformed at the box office, it was hailed as one of the best films of the decade by many critics, propelling Haynes to a more mainstream level of critical recognition, and Julianne Moore into stardom. It also marked the beginning of a longstanding creative collaboration between Haynes and Moore, who also worked together on Far from Heaven (2002), Wonderstruck (2017), and May December (2023).
 
-You can watch the trailer for Le Havre here: https://www.youtube.com/watch?v=BqhAe0gx5c4
+You can watch the trailer for Safe here: https://www.youtube.com/watch?v=MP3kLKLaiTw
 
-You can read more reviews for Le Havre on Letterboxd: https://letterboxd.com/film/le-havre/
+You can read more reviews for Safe on Letterboxd: https://letterboxd.com/film/safe/
 
 
-Limbo
+Sound of Metal
 =================================================================
 
 
-Ben Sharrock – 2020 – 1H43M – Cert. 12 – Scotland
+Darius Marder – 2019 – 2H – Cert. 15 – USA
 -----------------------------------------------------------------
 
 
-Friday 26th June – 2:00pm
+Thursday 23rd July – 6:00pm
 -----------------------------------------------------------------
 
-An offbeat observation of refugees waiting to be granted asylum on a fictional remote Scottish island. It focuses on Omar, a young Syrian musician who is burdened by the weight of his grandfather’s oud, which he has carried all the way from his homeland.
+When ex-addict Ruben (Riz Ahmed) unexpectedly loses his hearing while touring with his girlfriend Lou (Olivia Cooke), he becomes overwhelmed by anxiety and his life is thrown into turmoil. In a group home for Deaf addicts, Ruben must choose between his new Deaf community and the life of sound he left behind. Yet another film that went under the radar due to a Covid-times theatrical release, Sound of Metal is nevertheless a must-watch, with a powerhouse lead performance from Riz Ahmed.
+
+You can watch the trailer for Sound of Metal here: https://www.youtube.com/watch?v=3m_WaWC3c84
+
+You can read more reviews for Sound of Metal on Letterboxd: https://letterboxd.com/film/sound-of-metal/
+
+
+Discussion Group
+=================================================================
+
+
+Thursday 30th July – 6:00-7:00pm
+-----------------------------------------------------------------
+
+Come and discuss this month’s films with fellow cinema enthusiasts and a biscuit or two!
+
+
+Awakenings
+=================================================================
+
+
+Penny Marshall – 1990 – 2H01M – Cert. 12 – USA
+-----------------------------------------------------------------
+
+
+Friday 31st July – 2:00pm
+-----------------------------------------------------------------
+
+Dr. Malcolm Sayer, a shy research physician, uses an experimental drug to “awaken” the catatonic victims of a rare disease. Leonard is the first patient to receive the controversial treatment. His awakening, filled with awe and enthusiasm, proves a rebirth for Sayer too, as the exuberant patient reveals life’s simple but unutterably sweet pleasures to the introverted doctor. Based on Oliver Sacks’s 1973 memoir of the same name, the film features a fantastic performance from Robin Williams and Robert De Niro as the central duo, and was nominated for several Academy Awards
 
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 -----------------------------------------------------------------
 
-You can watch the trailer for Limbo here: https://letterboxd.com/film/limbo-2020-1/
+You can watch the trailer for Limbo here: https://www.youtube.com/watch?v=7exeVt7CaE4
 
-You can read more reviews for Limbo on Letterboxd: https://www.youtube.com/watch?v=3O--8AuuhgA
+You can read more reviews for Limbo on Letterboxd: https://letterboxd.com/film/awakenings/
+
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
+
+
+Now you know this month’s films – fancy doing an introduction?
+=================================================================
+
+If you’re interested, send me an email.: mailto:madeleine.davies@lewisham.gov.uk and let me know which film you would like to introduce!
+
+The purpose of the cinema club has always been to help connect local film fans, and celebrate our love of cinema as a group. I know we have some very passionate and knowledgeable members out there, so don’t be shy! You don’t have to have any experience of public speaking, and I will be there to support on the day.
+
+Intro guidelines:
+•   the intro can be anywhere between 1-10 minutes in length
+•   you can have a script or you can improvise – whatever works best for you
+•   it’s always good to mention the film’s title, director and time of release to familiarise the audience, but otherwise the focus can be up to you. You can do a general introduction to the film, giving some context to the time it was released and information about the film’s director and production, or you can focus on a particular aspect of the film, such as the music or the cinematography
+If you have any questions, please do get in touch
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -142,19 +186,19 @@ The screenings and discussion group are held in meeting rooms 1&2 on the ground 
 Don’t you sometimes do screenings in the front foyer?
 -----------------------------------------------------------------
 
-Yes! Occasionally we will advertise Films in the Foyer, our special event screenings where we project a film on the big screen in the front foyer of the library. For these screenings you will need to register for a free ticket, but when this is the case I will always let you know. 
+Yes! Occasionally we will advertise Films in the Foyer, our special event screenings where we project a film on the big screen in the front foyer of the library. For these screenings you will need to register for a free ticket, but when this is the case I will always let you know.
 
 
 Can I bring snacks to the screenings?
 -----------------------------------------------------------------
 
-If you’d like to bring your own snacks to the screening you’re very welcome – as long as the room is left clean and tidy! Please avoid any messy food and use the bins provided to dispose of any rubbish. 
+If you’d like to bring your own snacks to the screening you’re very welcome – as long as the room is left clean and tidy! Please avoid any messy food and use the bins provided to dispose of any rubbish.
 
 
 Are the screenings accessible?
 -----------------------------------------------------------------
 
-We always use subtitles when available, and there is plenty of space for wheelchair users. Seats are arranged in rows facing the screen with a gap through the middle, and can be easily moved if required. If you have any other questions regarding accessibility please feel free to send me an email: mailto:madeleine.davies@lewisham.gov.uk or call the library on 020 8314 7299. You can also click here: https://www.accessable.co.uk/london-borough-of-lewisham/access-guides/deptford-lounge#47DD90F8-95BB-4811-8D1B-3084168D035A for a full accessibility guide for Deptford Lounge. 
+We always use subtitles when available, and there is plenty of space for wheelchair users. Seats are arranged in rows facing the screen with a gap through the middle, and can be easily moved if required. If you have any other questions regarding accessibility please feel free to send me an email: mailto:madeleine.davies@lewisham.gov.uk or call the library on 020 8314 7299. You can also click here: https://www.accessable.co.uk/london-borough-of-lewisham/access-guides/deptford-lounge#47DD90F8-95BB-4811-8D1B-3084168D035A for a full accessibility guide for Deptford Lounge.
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
