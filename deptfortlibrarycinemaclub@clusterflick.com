@@ -1,12 +1,6 @@
-I hope everyone is holding up ok in this heat! If you need a space to cool down, we’ve enlisted some industrial fans at Deptford Library which are proving fairly effective.
+Thanks to all who suggested films under 90 minutes! Inspired by many of your suggestions, I’ve narrowed down the theme a little more  to Summer Under 90 Minutes. I was also very happy to see another Agnès Varda offering (Le Bonheur) get voted in – furthering my master plan to eventually screen all her films at the Cinema Club!
 
-This month’s theme is disability pride! All the films selected offer a sensitive and human portrayal of people who were either born with or developed a disability through the process of aging or external forces, and bring close examination to how the world around us can either help or hinder the less able-bodied. Incidentally, its also a pretty great line-up of films, so thanks to all who voted – I can’t wait to watch!
-
-July will also see the return of our monthly discussion group on the last Thursday of the month! Even if you haven’t been before, please do come along, grab a biscuit and enjoy a discussion about this month’s films!
-
-In other news, I have set up an official Letterboxd account for Deptford Library Cinema Club: https://letterboxd.com/deptfordlibrary/! If you’re into cinema, Letterboxd is a fantastic site where you can log and review any films you watch, as well as see what your friends and other Letterboxd users are watching. It’s a great resource to find interesting films you might not have heard of, and lets you know where you can watch any film either on streaming or in cinemas. You can also display your top four favourite films – the top four on the Deptford Library account will be the most voted for films since the club began!
-
-Unfortunately, due to our licensing restrictions, we can only advertise the films we’re screening within the building of the library or through direct communications (like this newsletter!), so my emails will remain the best way to keep up with our film showings. However, starting from this month, I will also be making a list on Letterboxd of the upcoming films for each month. This list will only be available to view if you click the link (which I will include in every newsletter), but once you have clicked, it will be another way of quickly seeing the programme for the club! Here is the link: https://boxd.it/VhLDi$CSgGhILAT9cZJWlp for this month’s schedule on Letterboxd.
+Before we get to the schedule – just another reminder that you can now follow Deptford Library Cinema Club on Letterboxd: https://letterboxd.com/deptfordlibrary/ – I’ve also started putting the voting shortlists on there too which you can leave comments on if you like! This is partially in response to some feedback I got for a DLCC WhatsApp group as another way of talking with other cinema club go-ers about the film shortlists. Unfortunately with the council’s GDPR policy etc. this would just be too complicated for me to moderate at this point, but as an existing platform I think Letterboxd is a very good substitute for this!
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -17,118 +11,100 @@ To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of th
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for July – Disability Pride
+Film Schedule for August – Summer Under 90 Minutes
 =================================================================
 
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
-To view the full schedule on Letterboxd, please click here!: https://boxd.it/VhLDi$CSgGhILAT9cZJWlp
+To view the full schedule on Letterboxd, please click here!: https://boxd.it/W9r9q$RraCDBNEh7ocBKnC You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
 
 
-A Simple Life
+The Watermelon Woman
 =================================================================
 
 
-Ann Hui – 2011 – 1H58M – Cert. PG – Hong Kong
+Cheryl Dunye – 1996 – 90M – Cert. 15 – USA
 -----------------------------------------------------------------
 
 
-Thursday 2nd July – 6:00pm
+Thursday 6th August – 6:00pm
 -----------------------------------------------------------------
 
-After suffering a stroke, housemaid to film producer Roger (Andy Lau)  Chun-To (Deanie Ip) is forced to retire. With the help of Roger, she moves into a nursing home where he goes to visit her in-between jobs. A quietly moving film from the much celebrated Ann Hui, A Simple Life deftly explores the emotional intricacies of being an adult who was largely raised by a housemaid – a social phenomenon that is fairly common in Hong Kong. Ironically, Hui herself considered retiring after making this film, but changed her mind after the film’s resounding box office and critical success.
+After watching a film from the 1930’s in which a Black actress playing a mammy is credited only as “The Watermelon Woman”, a young African-American video store worker decides to make a documentary to uncover the actress’ identity. Playfully oscillating between lesbian rom-com and investigative mockumentary, this is one of those self-reflexive films that acts as both a celebration and an offering to the medium itself. Starring Cheryl Dunye as a fictionalised version of herself, the film is also an important piece of LGBTQ+ history as the first known feature film to be directed by a Black lesbian.
 
-You can watch the trailer for A Simple Life here: https://www.youtube.com/watch?v=LGerZCQwvjE
+You can watch the trailer for The Watermelon Woman here: https://www.youtube.com/watch?v=mtU6Wo29VXI
 
-You can read more reviews for A Simple Life on Letterboxd: https://letterboxd.com/film/a-simple-life/
+You can read more reviews for The Watermelon Woman on Letterboxd: https://letterboxd.com/film/the-watermelon-woman/
 
 
-I Swear
+Persona
 =================================================================
 
 
-Kirk Jones – 2025 – 2H01M – Cert. 15 – England
+Ingmar Bergman – 1966 – 83M – Cert. 15 – Sweden
 -----------------------------------------------------------------
 
 
-Thursday 9th July – 6:00pm
+Thursday 13th August – 6:00pm
 -----------------------------------------------------------------
 
-Inspired by the life of John Davidson, charting his journey from a misunderstood teenager in 1980’s Britain to a present day advocate for the understanding and acceptance of Tourette Syndrome. Diagnosed aged fifteen, John navigates his way against the odds through troubled teenage years and into adulthood, finding inspiration in the kindness of others to discover his true purpose in life. Starring a stellar supporting cast of British talent, including Maxine Peake, Shirley Henderson, and Peter Mullan, the film also made waves at this year’s BAFTA’S, including a surprise win for Robert Aramayo as Best Actor.
+A young nurse, Alma, is put in charge of Elisabeth Vogler: an actress who is seemingly healthy in all respects, but will not talk. As they spend time together, Alma speaks to Elisabeth constantly, though never receiving any answer. Slowly, the line sbetween the two women become blurred, and Alma begins having trouble distinguishing herself from her patient. A landmark film in critical analysis, Persona is often considered one of the best films of all time, as well as Bergman’s magnum opus. It has also become a lasting cultural touchstone, inspiring countless artists and directors including Robert Altman, David Lynch, and Denis Villeneuve – and most recently in Charli xcx’s new song of the same name!
 
-You can watch the trailer for I Swear here: https://www.youtube.com/watch?v=oeWqQN3snCU
+You can watch the trailer for Persona here: https://www.youtube.com/watch?v=8ZO01M8k1mg
 
-You can read more reviews for I Swear on Letterboxd: https://letterboxd.com/film/i-swear/
+You can read more reviews for Persona on Letterboxd: https://letterboxd.com/film/persona/
 
 
-Safe
+Le Bonheur
 =================================================================
 
 
-Todd Haynes – 1995 – 1H59M – Cert. 15 – USA
+Agnès Varda – 1965 – 79M – Cert. 15 – France
 -----------------------------------------------------------------
 
 
-Thursday 16th July – 6:00pm
+Thursday 20th August – 6:00pm
 -----------------------------------------------------------------
 
-Carol White, a Los Angeles housewife in the late 1980s, sees her monotonous life abruptly change when she becomes sick with a mysterious illness which she believes is caused by the environment around her. Although Safe underperformed at the box office, it was hailed as one of the best films of the decade by many critics, propelling Haynes to a more mainstream level of critical recognition, and Julianne Moore into stardom. It also marked the beginning of a longstanding creative collaboration between Haynes and Moore, who also worked together on Far from Heaven (2002), Wonderstruck (2017), and May December (2023).
+Though married to the good-natured, beautiful Thérèse, young husband and father François finds himself falling unquestioningly into an affair with an attractive postal worker. One of Agnès Varda’s most provocative films, ‘Le bonheur’ examines, with a deceptively cheery palette and the spirited strains of Mozart, the ideas of fidelity and happiness in a modern, self-centred world. At the time of release, the film garnered criticism from some corners of feminism accusing the film of pandering to a sexist male fantasy. With time and greater examination however, the film is now considered on of Varda’s best – in the words of Jenny Chamarette – “like nothing else: a horror movie wrapped up in sunflowers, an excoriating feminist diatribe strummed to the tune of a love ballad. It’s one of the most terrifying films I’ve ever seen.”
 
-You can watch the trailer for Safe here: https://www.youtube.com/watch?v=MP3kLKLaiTw
+You can watch the trailer for Le Bonheur here: https://www.youtube.com/watch?v=H_apt9n4y88
 
-You can read more reviews for Safe on Letterboxd: https://letterboxd.com/film/safe/
-
-
-Sound of Metal
-=================================================================
-
-
-Darius Marder – 2019 – 2H – Cert. 15 – USA
------------------------------------------------------------------
-
-
-Thursday 23rd July – 6:00pm
------------------------------------------------------------------
-
-When ex-addict Ruben (Riz Ahmed) unexpectedly loses his hearing while touring with his girlfriend Lou (Olivia Cooke), he becomes overwhelmed by anxiety and his life is thrown into turmoil. In a group home for Deaf addicts, Ruben must choose between his new Deaf community and the life of sound he left behind. Yet another film that went under the radar due to a Covid-times theatrical release, Sound of Metal is nevertheless a must-watch, with a powerhouse lead performance from Riz Ahmed.
-
-You can watch the trailer for Sound of Metal here: https://www.youtube.com/watch?v=3m_WaWC3c84
-
-You can read more reviews for Sound of Metal on Letterboxd: https://letterboxd.com/film/sound-of-metal/
+You can read more reviews for Le Bonheur on Letterboxd: https://letterboxd.com/film/happiness-1965/
 
 
 Discussion Group
 =================================================================
 
 
-Thursday 30th July – 6:00-7:00pm
+Friday 27th August – 6:00-7:00pm
 -----------------------------------------------------------------
 
 Come and discuss this month’s films with fellow cinema enthusiasts and a biscuit or two!
 
 
-Awakenings
+Boy
 =================================================================
 
 
-Penny Marshall – 1990 – 2H01M – Cert. 12 – USA
+Taika Waititi – 2012 – 87M – Cert. 15 – New Zealand
 -----------------------------------------------------------------
 
 
-Friday 31st July – 2:00pm
+Friday 28th August – 2:00pm
 -----------------------------------------------------------------
 
-Dr. Malcolm Sayer, a shy research physician, uses an experimental drug to “awaken” the catatonic victims of a rare disease. Leonard is the first patient to receive the controversial treatment. His awakening, filled with awe and enthusiasm, proves a rebirth for Sayer too, as the exuberant patient reveals life’s simple but unutterably sweet pleasures to the introverted doctor. Based on Oliver Sacks’s 1973 memoir of the same name, the film features a fantastic performance from Robin Williams and Robert De Niro as the central duo, and was nominated for several Academy Awards
+Boy, an 11-year-old devout Michael Jackson fan who lives on the east coast of New Zealand in 1984, gets a chance to know his absentee criminal father, who has returned to find a bag of money he buried years ago. Waititi’s sophomore feature film, Boy brings autobiographical elements of Waititi’s childhood to the screen whilst he stars in the film as a fictionalised version of his father. Although less well known than Waititi’s later films, Boy remains an important piece of New Zealand cinema.
 
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 -----------------------------------------------------------------
 
-You can watch the trailer for Limbo here: https://www.youtube.com/watch?v=7exeVt7CaE4
+You can watch the trailer for Boy here: https://www.youtube.com/watch?v=ESD3mlgpSwM
 
-You can read more reviews for Limbo on Letterboxd: https://letterboxd.com/film/awakenings/
+You can read more reviews for Boy on Letterboxd: https://letterboxd.com/film/boy-2010/
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -193,6 +169,12 @@ Can I bring snacks to the screenings?
 -----------------------------------------------------------------
 
 If you’d like to bring your own snacks to the screening you’re very welcome – as long as the room is left clean and tidy! Please avoid any messy food and use the bins provided to dispose of any rubbish.
+
+
+Is there a way for me to interact with other Cinema Club go-ers and see what films are being screened?
+-----------------------------------------------------------------
+
+Yes! It’s called Letterboxd – often described as Goodreads for film lovers. If you visit Deptford Library Cinema Club’s profile: https://boxd.it/dAXVl, you’ll be able to see our Letterboxd Top Four (the club’s most voted for films), as well as every film we’ve ever screened. You’ll also be able to leave comments on our monthly shortlists as well as the new schedule – let us know your favourites! Due to our film license restrictions, you’ll only be able to see the current film schedule list on Letterboxd through a special link I will include in each newsletter. However, once you’ve clicked this link, you’ll be able to return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
 
 
 Are the screenings accessible?
