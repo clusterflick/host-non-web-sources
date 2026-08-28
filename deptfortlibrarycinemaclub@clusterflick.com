@@ -1,6 +1,8 @@
-Thanks to all who suggested films under 90 minutes! Inspired by many of your suggestions, I’ve narrowed down the theme a little more  to Summer Under 90 Minutes. I was also very happy to see another Agnès Varda offering (Le Bonheur) get voted in – furthering my master plan to eventually screen all her films at the Cinema Club!
+I am so excited for September’s programme! You may have noticed that I didn’t include a suggestions box for September’s films in last month’s voting form... This is because the films for this month have each been chosen by a different poet (in association with the London Writers Centre: https://www.londonwriterscentre.org.uk/) to reflect the themes of their work. Each film will be introduced with a short poetry reading from each poet.
 
-Before we get to the schedule – just another reminder that you can now follow Deptford Library Cinema Club on Letterboxd: https://letterboxd.com/deptfordlibrary/ – I’ve also started putting the voting shortlists on there too which you can leave comments on if you like! This is partially in response to some feedback I got for a DLCC WhatsApp group as another way of talking with other cinema club go-ers about the film shortlists. Unfortunately with the council’s GDPR policy etc. this would just be too complicated for me to moderate at this point, but as an existing platform I think Letterboxd is a very good substitute for this!
+I had the idea for the Film Screenings x Poetry Readings events series after watching a screening of If I Had Legs I’d Kick You (2025) – an incredible film I’d love to screen one day – presented by Girls in Film: https://www.girlsinfilm.net/ at Rich Mix. Before the screening started, they had a poet read some of her poetry on the themes of motherhood, which are also central to the film. It was such a good way to get into the mindset of the film, and I think made me appreciate it all the more. I hope you’ll all feel the same with this month’s films!
+
+All of this month’s films are also being screened in celebration of East and South East Asian (ESEA) Heritage month – please do check out the rest of Lewisham Libraries’ ESEA events: https://libraries.lewisham.gov.uk/events/category/east-and-south-east-asian-esea-heritage-month happening across the borough, we’ve got some great activities planned!
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -11,116 +13,134 @@ To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of th
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for August – Summer Under 90 Minutes
+Film Schedule for September – ESEA Film Screenings x Poetry Readings
 =================================================================
 
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
-To view the full schedule on Letterboxd, please click here!: https://boxd.it/W9r9q$RraCDBNEh7ocBKnC You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
+To view the full schedule on Letterboxd, please click here!: https://boxd.it/WR4w0$ZT7GIiRtbvSHnJcQ You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
 
 
-The Watermelon Woman
+Click here to download this month’s schedule as a PNG image.: https://documents.service.gov.uk/d/XH8IfHJuTAq2ghu6bIkqLQ/a9_dwogQRiyBwWkFEDVMvw?key=njhd7Bi1GHpBUqPOVIOdEtEOAx1WzNVVjk0DstUieqk
+-----------------------------------------------------------------
+
+
+Everything Everywhere All At Once
 =================================================================
 
 
-Cheryl Dunye – 1996 – 90M – Cert. 15 – USA
+Daniel Kwan and Daniel Scheinert – 2022 – 2H19M – Cert. 15 – USA
 -----------------------------------------------------------------
 
 
-Thursday 6th August – 6:00pm
+With introductory poetry reading by Helen Bowell
 -----------------------------------------------------------------
 
-After watching a film from the 1930’s in which a Black actress playing a mammy is credited only as “The Watermelon Woman”, a young African-American video store worker decides to make a documentary to uncover the actress’ identity. Playfully oscillating between lesbian rom-com and investigative mockumentary, this is one of those self-reflexive films that acts as both a celebration and an offering to the medium itself. Starring Cheryl Dunye as a fictionalised version of herself, the film is also an important piece of LGBTQ+ history as the first known feature film to be directed by a Black lesbian.
 
-You can watch the trailer for The Watermelon Woman here: https://www.youtube.com/watch?v=mtU6Wo29VXI
+Thursday 3rd September – 6:00pm
+-----------------------------------------------------------------
 
-You can read more reviews for The Watermelon Woman on Letterboxd: https://letterboxd.com/film/the-watermelon-woman/
+An aging Chinese immigrant is swept up in an insane adventure, where she alone can save what’s important to her by connecting with the lives she could have led in other universes.
+
+Helen will be reading various poems from her previous work. Read her reasons for selecting the film below:
+
+Growing up, I often felt paralysed by big decisions: what to study at which university? Is this boyfriend forever? What if I kissed a girl? Each choice led to a different parallel universe – but in which one would I be the best person I could be? My mother moved to the UK from Hong Kong in the 1970s. But she’s been jumping between parallel universes the whole time – shouting down long-distance phone calls, regretting not being with her parents at the end. Daniel Scheinert, co-director of Everything Everywhere All At Once, said: ‘The whole immigrant story is kind of already a multiverse story because you exist in three or four worlds.’ I’d never seen a film that understood my mother’s Chinese migrant experience, and how that dislocation is passed down to a queer daughter, until this one. And with such delicious silliness! Michelle Yeoh kicking butt! Hilarious gags about raccoons!
+
+You can find more info on poet Helen Bowell on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267537
+
+You can watch the trailer for Everything Everywhere All At Once  here: https://www.youtube.com/watch?v=wxN1T1uxQ2g
+
+You can read more reviews for Everything Everywhere All At Once  on Letterboxd: https://letterboxd.com/film/everything-everywhere-all-at-once/
 
 
-Persona
+The Eagle Huntress
 =================================================================
 
 
-Ingmar Bergman – 1966 – 83M – Cert. 15 – Sweden
+Otto Bell – 2016 – 1H27M – Cert. U – Mongolia
 -----------------------------------------------------------------
 
 
-Thursday 13th August – 6:00pm
+With introductory poetry reading by yuwei 魚尾
 -----------------------------------------------------------------
 
-A young nurse, Alma, is put in charge of Elisabeth Vogler: an actress who is seemingly healthy in all respects, but will not talk. As they spend time together, Alma speaks to Elisabeth constantly, though never receiving any answer. Slowly, the line sbetween the two women become blurred, and Alma begins having trouble distinguishing herself from her patient. A landmark film in critical analysis, Persona is often considered one of the best films of all time, as well as Bergman’s magnum opus. It has also become a lasting cultural touchstone, inspiring countless artists and directors including Robert Altman, David Lynch, and Denis Villeneuve – and most recently in Charli xcx’s new song of the same name!
 
-You can watch the trailer for Persona here: https://www.youtube.com/watch?v=8ZO01M8k1mg
+Thursday 10th September – 6:00pm
+-----------------------------------------------------------------
 
-You can read more reviews for Persona on Letterboxd: https://letterboxd.com/film/persona/
+Follow Aisholpan, a 13-year-old girl, as she trains to become the first female in twelve generations of her Kazakh family to become an eagle hunter, and rise to the pinnacle of a tradition that has been typically been handed down from father to son for centuries.
+
+yuwei 魚尾 will be reading poems ‘’are we happy enough yet’, ‘dear stranger, dear blood’, and ‘Feathers’. Read her reasons for selecting the film below:
+
+The Eagle Huntress was the first film that came to mind for this screening. As someone from a nomadic tradition, in some tales from my heritage, the goddess who created this world transformed from a female eagle – the first woman and shaman who created the world entirely on her own (without a man!). But the eagle gradually became a symbol of powerful men, and men took over the tradition. Re-telling and remembering women’s traditions is becoming urgent, so girls who grow up in discouraging cultures can be empowered by their own roots. Circling back to the film, it tells the story of a girl, Aisholpan, who dreams of becoming an eagle hunter, a role traditionally not allowed for girls. This documentary is set in Mongolia with North Asian landscapes and beautiful eagles!
+
+You can find more info on poet yuwei 魚尾 on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267538
+
+You can watch the trailer for The Eagle Huntress here: https://www.youtube.com/watch?v=Vfi5JS6HTH0
+
+You can read more reviews for The Eagle Huntress on Letterboxd: https://letterboxd.com/film/the-eagle-huntress/
 
 
-Le Bonheur
+Princess Mononoke
 =================================================================
 
 
-Agnès Varda – 1965 – 79M – Cert. 15 – France
+Hayao Miyazaki – 1997 – 2H13M – Cert. PG – Japan
 -----------------------------------------------------------------
 
 
-Thursday 20th August – 6:00pm
+With introductory poetry reading by Erica Hesketh
 -----------------------------------------------------------------
 
-Though married to the good-natured, beautiful Thérèse, young husband and father François finds himself falling unquestioningly into an affair with an attractive postal worker. One of Agnès Varda’s most provocative films, ‘Le bonheur’ examines, with a deceptively cheery palette and the spirited strains of Mozart, the ideas of fidelity and happiness in a modern, self-centred world. At the time of release, the film garnered criticism from some corners of feminism accusing the film of pandering to a sexist male fantasy. With time and greater examination however, the film is now considered on of Varda’s best – in the words of Jenny Chamarette – “like nothing else: a horror movie wrapped up in sunflowers, an excoriating feminist diatribe strummed to the tune of a love ballad. It’s one of the most terrifying films I’ve ever seen.”
 
-You can watch the trailer for Le Bonheur here: https://www.youtube.com/watch?v=H_apt9n4y88
+Thursday 17th September – 6:00pm
+-----------------------------------------------------------------
 
-You can read more reviews for Le Bonheur on Letterboxd: https://letterboxd.com/film/happiness-1965/
+Ashitaka, a prince of the disappearing Emishi people, is cursed by a demonized boar god and must journey to the west to find a cure. Along the way, he encounters San, a young human woman fighting to protect the forest, and Lady Eboshi, who is trying to destroy it. Ashitaka must find a way to bring balance to this conflict.
+
+Erica will be reading poems from In the Lily Room: https://ninearchespress.com/publications/poetry-collections/in-the-lily-room?t=1787662732606, To an Unknown Receiver: https://www.guillemotpress.co.uk/poetry/erica-hesketh, and one story from her new book out in October – Moon, Snow, Blossom: Wintry Folk Tales from Across Japan: https://eandtbooks.com/books/moon-snow-blossom/ – which references the Yamato domination of the Emishi people that is mentioned at the start of Princess Mononoke. Read her reasons for selecting the film below:
+
+I grew up watching Studio Ghibli films, and I could have picked any of a dozen for this cinema club event for their thought-provoking and moving explorations of humanity’s relationship with the more-than-human world – and the urgent need for human beings to reset and heal this relationship. Princess Mononoke weaves this powerful message together with themes of violence, greed, female empowerment, and even loyalty and love. Nothing is simplistic in a Studio Ghibli film, and the film makes you think and rethink at every turn. The visible presence of kami (gods), forest spirits and demons, Prince Ashitaka’s central struggle against a hate that threatens to spill out from within, and the unknowable nature of Mononoke-hime herself make this an unforgettable allegory for our times.
+
+You can find more info on poet Erica Hesketh on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267539
+
+You can watch the trailer for Princess Mononoke here: https://www.youtube.com/watch?v=4OiMOHRDs14
+
+You can read more reviews for Princess Mononoke on Letterboxd: https://letterboxd.com/film/princess-mononoke/
 
 
-Discussion Group
+Short Film Screening and Discussion Group
 =================================================================
 
 
-Friday 27th August – 6:00-7:00pm
+Thursday 27th September – 6:00 -7:00pm
 -----------------------------------------------------------------
 
-Come and discuss this month’s films with fellow cinema enthusiasts and a biscuit or two!
+Watch an exclusive short film screening So Darling, Play Your Violin: https://queereast.org.uk/programme/so-darling-play-your-violin-%f0%9d%84%86/ (2024) created by poet Yuwei 魚尾, before discussing the rest of this month’s screenings with a selection of ESEA snacks!
 
 
-Boy
+The Scent of Green Papaya
 =================================================================
 
 
-Taika Waititi – 2012 – 87M – Cert. 15 – New Zealand
+Tran Anh Hung – 1993 – 1H44M – Cert. U – Vietnam
 -----------------------------------------------------------------
 
 
-Friday 28th August – 2:00pm
+Friday 25th September – 2:00pm
 -----------------------------------------------------------------
 
-Boy, an 11-year-old devout Michael Jackson fan who lives on the east coast of New Zealand in 1984, gets a chance to know his absentee criminal father, who has returned to find a bag of money he buried years ago. Waititi’s sophomore feature film, Boy brings autobiographical elements of Waititi’s childhood to the screen whilst he stars in the film as a fictionalised version of his father. Although less well known than Waititi’s later films, Boy remains an important piece of New Zealand cinema.
+1950s Saigon through the eyes of Mui, a Vietnamese servant girl. At 10 years-old, Mui leaves her village to work for an affluent, troubled family. As she comes of age, Mui finds work in the household of a pianist she has admired since childhood, and finds their relationship growing in complexity.
 
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 -----------------------------------------------------------------
 
-You can watch the trailer for Boy here: https://www.youtube.com/watch?v=ESD3mlgpSwM
+You can watch the trailer for The Scent of Green Papaya here: https://www.youtube.com/watch?v=q2OfJYvjgQ8
 
-You can read more reviews for Boy on Letterboxd: https://letterboxd.com/film/boy-2010/
-
-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
-
-
-Now you know this month’s films – fancy doing an introduction?
-=================================================================
-
-If you’re interested, send me an email.: mailto:madeleine.davies@lewisham.gov.uk and let me know which film you would like to introduce!
-
-The purpose of the cinema club has always been to help connect local film fans, and celebrate our love of cinema as a group. I know we have some very passionate and knowledgeable members out there, so don’t be shy! You don’t have to have any experience of public speaking, and I will be there to support on the day.
-
-Intro guidelines:
-•   the intro can be anywhere between 1-10 minutes in length
-•   you can have a script or you can improvise – whatever works best for you
-•   it’s always good to mention the film’s title, director and time of release to familiarise the audience, but otherwise the focus can be up to you. You can do a general introduction to the film, giving some context to the time it was released and information about the film’s director and production, or you can focus on a particular aspect of the film, such as the music or the cinematography
-If you have any questions, please do get in touch
+You can read more reviews for The Scent of Green Papaya on Letterboxd: https://letterboxd.com/film/the-scent-of-green-papaya/
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
