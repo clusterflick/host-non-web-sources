@@ -115,7 +115,7 @@ Short Film Screening and Discussion Group
 =================================================================
 
 
-Thursday 27th September – 6:00 -7:00pm
+Thursday 24th September – 6:00 -7:00pm
 -----------------------------------------------------------------
 
 Watch an exclusive short film screening So Darling, Play Your Violin: https://queereast.org.uk/programme/so-darling-play-your-violin-%f0%9d%84%86/ (2024) created by poet Yuwei 魚尾, before discussing the rest of this month’s screenings with a selection of ESEA snacks!
