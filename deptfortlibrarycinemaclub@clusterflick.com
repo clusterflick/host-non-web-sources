@@ -1,8 +1,13 @@
-I am so excited for September’s programme! You may have noticed that I didn’t include a suggestions box for September’s films in last month’s voting form... This is because the films for this month have each been chosen by a different poet (in association with the London Writers Centre: https://www.londonwriterscentre.org.uk/) to reflect the themes of their work. Each film will be introduced with a short poetry reading from each poet.
+Just wanted to say a huge thank you to all who came out for September’s Film Screenings x Poetry Readings season! If you have any feedback about these screenings please do let me know, as it’s a format I think I’ll bring back at some point in the new year, but I hope everyone enjoyed the poetry introductions!
 
-I had the idea for the Film Screenings x Poetry Readings events series after watching a screening of If I Had Legs I’d Kick You (2025) – an incredible film I’d love to screen one day – presented by Girls in Film: https://www.girlsinfilm.net/ at Rich Mix. Before the screening started, they had a poet read some of her poetry on the themes of motherhood, which are also central to the film. It was such a good way to get into the mindset of the film, and I think made me appreciate it all the more. I hope you’ll all feel the same with this month’s films!
+This month, I am very excited to announce that the incredible T A P E Collective: https://www.tapecollective.co.uk/ have programmed the films for this year’s Black History Month. T A P E is a UK-based film company working across exhibition and distribution to platform the works of global majority filmmakers, championing films that have previously fallen through the cracks to help them achieve the cult status they deserve! Asa result, we have an absolutely fantastic line up this month. And I know many of you will be pleased to see Saint Omer first on the list, after we were unable to show it last year!
 
-All of this month’s films are also being screened in celebration of East and South East Asian (ESEA) Heritage month – please do check out the rest of Lewisham Libraries’ ESEA events: https://libraries.lewisham.gov.uk/events/category/east-and-south-east-asian-esea-heritage-month happening across the borough, we’ve got some great activities planned!
+I’m also really happy to announce that our annual Halloween screening will be back on Thursday 29th October! Please note that due to scheduling conflicts, this screening will be happening at Catford Library, so there won’t be a screening or discussion group at Deptford on that day. We’ll still be getting out the big screen and projector, and the film has also been picked by T A P E, so I can tell you we’re in for a fun night... I will be revealing the film title very soon!
+
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
+
+
+Before we get to the schedule, just wanted to share this callout for short films! Lovely Jess who works at the lounge is organising a fundraising event for Saaj Raja’s exciting new play Bad Indian, part of which will include a South Asian short film screening. If you’re a South Asian film maker, click here: https://forms.gle/RriJktcj993xhkEp8 for more info and to submit your film. Deadline to submit is this Thursday 1 October!
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -13,134 +18,122 @@ To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of th
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for September – ESEA Film Screenings x Poetry Readings
+Film Schedule for October – Black History Month with T A P E: https://www.tapecollective.co.uk/
 =================================================================
 
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
-To view the full schedule on Letterboxd, please click here!: https://boxd.it/WR4w0$ZT7GIiRtbvSHnJcQ You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
+To view the full schedule on Letterboxd, please click here!: https://boxd.it/XyeXQ$dd86YVR0c9qiQTnK You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
+
+Click here to download this month’s schedule as a PNG image.: https://documents.service.gov.uk/d/XH8IfHJuTAq2ghu6bIkqLQ/vSPTY0sLTwSw2YckXyLaLg?key=fT-_MUmoL5WMh7B9JP5vAnwM51Ci_Cm10pCaZpe8fgI
 
 
-Click here to download this month’s schedule as a PNG image.: https://documents.service.gov.uk/d/XH8IfHJuTAq2ghu6bIkqLQ/a9_dwogQRiyBwWkFEDVMvw?key=njhd7Bi1GHpBUqPOVIOdEtEOAx1WzNVVjk0DstUieqk
------------------------------------------------------------------
-
-
-Everything Everywhere All At Once
+Saint Omer
 =================================================================
 
 
-Daniel Kwan and Daniel Scheinert – 2022 – 2H19M – Cert. 15 – USA
+Alice Diop – 2023 – 2H02M – Cert. 12 – France
 -----------------------------------------------------------------
 
 
-With introductory poetry reading by Helen Bowell
+Thursday 1st October – 6:00pm
 -----------------------------------------------------------------
 
+A novelist attends the trial of a woman accused of killing her 15-month-old daughter by abandoning her to the rising tide on a beach in northern France. But as the trial continues, her own family history, doubts, and fears about motherhood are steadily dislodged as the life story of the accused is gradually revealed. Primarily a documentarian (some of you may remember Diop’s fantastic film Dahomey which we screened last year), this is Diop’s first narrative feature, although its heavily inspired by her own experience of attending the real-life trial of Fabienne Kabou, who was trialled for a similar case. Described perfectly by the Criterion Collection, by expertly “interweaving complex themes of mother-daughter bonds, immigrant alienation, and postcolonial trauma into a piercing portrait of two mysteriously connected women, Diop forgoes mere questions of guilt and innocence in order to plumb the unsettling unknowability of the human soul.”
 
-Thursday 3rd September – 6:00pm
------------------------------------------------------------------
-
-An aging Chinese immigrant is swept up in an insane adventure, where she alone can save what’s important to her by connecting with the lives she could have led in other universes.
-
-Helen will be reading various poems from her previous work. Read her reasons for selecting the film below:
-
-Growing up, I often felt paralysed by big decisions: what to study at which university? Is this boyfriend forever? What if I kissed a girl? Each choice led to a different parallel universe – but in which one would I be the best person I could be? My mother moved to the UK from Hong Kong in the 1970s. But she’s been jumping between parallel universes the whole time – shouting down long-distance phone calls, regretting not being with her parents at the end. Daniel Scheinert, co-director of Everything Everywhere All At Once, said: ‘The whole immigrant story is kind of already a multiverse story because you exist in three or four worlds.’ I’d never seen a film that understood my mother’s Chinese migrant experience, and how that dislocation is passed down to a queer daughter, until this one. And with such delicious silliness! Michelle Yeoh kicking butt! Hilarious gags about raccoons!
-
-You can find more info on poet Helen Bowell on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267537
-
-You can watch the trailer for Everything Everywhere All At Once  here: https://www.youtube.com/watch?v=wxN1T1uxQ2g
-
-You can read more reviews for Everything Everywhere All At Once  on Letterboxd: https://letterboxd.com/film/everything-everywhere-all-at-once/
+You can watch the trailer for Saint Omer here: https://www.youtube.com/watch?v=iWw-EyrG5Sw
+You can read more reviews for Saint Omer on Letterboxd: https://letterboxd.com/film/saint-omer/
 
 
-The Eagle Huntress
+Burning an Illusion
 =================================================================
 
 
-Otto Bell – 2016 – 1H27M – Cert. U – Mongolia
+Menelik Shabazz – 1981 – 1H45M – Cert. 15 – Britain
 -----------------------------------------------------------------
 
 
-With introductory poetry reading by yuwei 魚尾
+Thursday 8th October – 6:00pm
 -----------------------------------------------------------------
 
+A young black woman in England becomes increasingly frustrated with her life with her lazy, demanding boyfriend, and with the help of friends seeks something better. Another documentarian with his first narrative feature (locals will be interested in Blood Ah Go Run (1981), which features a snapshot from the protests following the New Cross fire), Shabazz’s fiction debut was only the second British feature to be made by a Black director in the UK. With its equally unprecedented centring of a black female character for the time, Burning an Illusion is an unmissable piece of British cinema.
 
-Thursday 10th September – 6:00pm
------------------------------------------------------------------
-
-Follow Aisholpan, a 13-year-old girl, as she trains to become the first female in twelve generations of her Kazakh family to become an eagle hunter, and rise to the pinnacle of a tradition that has been typically been handed down from father to son for centuries.
-
-yuwei 魚尾 will be reading poems ‘’are we happy enough yet’, ‘dear stranger, dear blood’, and ‘Feathers’. Read her reasons for selecting the film below:
-
-The Eagle Huntress was the first film that came to mind for this screening. As someone from a nomadic tradition, in some tales from my heritage, the goddess who created this world transformed from a female eagle – the first woman and shaman who created the world entirely on her own (without a man!). But the eagle gradually became a symbol of powerful men, and men took over the tradition. Re-telling and remembering women’s traditions is becoming urgent, so girls who grow up in discouraging cultures can be empowered by their own roots. Circling back to the film, it tells the story of a girl, Aisholpan, who dreams of becoming an eagle hunter, a role traditionally not allowed for girls. This documentary is set in Mongolia with North Asian landscapes and beautiful eagles!
-
-You can find more info on poet yuwei 魚尾 on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267538
-
-You can watch the trailer for The Eagle Huntress here: https://www.youtube.com/watch?v=Vfi5JS6HTH0
-
-You can read more reviews for The Eagle Huntress on Letterboxd: https://letterboxd.com/film/the-eagle-huntress/
+You can watch the trailer for Burning an Illusion here: https://www.youtube.com/watch?v=XPI86WEv1Zw
+You can read more reviews for Burning an Illusion on Letterboxd: https://letterboxd.com/film/burning-an-illusion/
 
 
-Princess Mononoke
+Seeking Mavis Beacon
 =================================================================
 
 
-Hayao Miyazaki – 1997 – 2H13M – Cert. PG – Japan
+Jazmin Jones – 2025 – 1H42M – Cert. 15 – USA
 -----------------------------------------------------------------
 
 
-With introductory poetry reading by Erica Hesketh
+Thursday 15th October – 6:00pm
 -----------------------------------------------------------------
 
+Filmmakers Jazmin Jones and Olivia McKayla Ross film their DIY investigation to uncover the woman behind the face of ‘Mavis Beacon Teaches Typing’, an educational software programme developed in the 1980s. Its defining features permanently live on in the filmmakers’ collective memory – the elegant, smiling Black woman in the cream suit marching off to her high-rise job on the cover of the package and the Black hands with 3inch – long acrylic fingernails, overlaid on the screen that clattered as Beacon typed in tandem with her users. Retailers in the 80s were convinced a software programme featuring a dark-skinned Black woman wouldn’t sell, but it ended up becoming one of the most successful and lucrative educational products of all time. What became of the influential cover model who vanished decades ago? Their sleuthing uncovers a shocking revelation. What follows leads Jones and Ross to question, in the age of AI and technological omnipresence, who does our image really belong to?  (Film description courtesy of T A P E: https://www.tapecollective.co.uk/feature-films/seeking-mavis-beacon)
 
-Thursday 17th September – 6:00pm
------------------------------------------------------------------
-
-Ashitaka, a prince of the disappearing Emishi people, is cursed by a demonized boar god and must journey to the west to find a cure. Along the way, he encounters San, a young human woman fighting to protect the forest, and Lady Eboshi, who is trying to destroy it. Ashitaka must find a way to bring balance to this conflict.
-
-Erica will be reading poems from In the Lily Room: https://ninearchespress.com/publications/poetry-collections/in-the-lily-room?t=1787662732606, To an Unknown Receiver: https://www.guillemotpress.co.uk/poetry/erica-hesketh, and one story from her new book out in October – Moon, Snow, Blossom: Wintry Folk Tales from Across Japan: https://eandtbooks.com/books/moon-snow-blossom/ – which references the Yamato domination of the Emishi people that is mentioned at the start of Princess Mononoke. Read her reasons for selecting the film below:
-
-I grew up watching Studio Ghibli films, and I could have picked any of a dozen for this cinema club event for their thought-provoking and moving explorations of humanity’s relationship with the more-than-human world – and the urgent need for human beings to reset and heal this relationship. Princess Mononoke weaves this powerful message together with themes of violence, greed, female empowerment, and even loyalty and love. Nothing is simplistic in a Studio Ghibli film, and the film makes you think and rethink at every turn. The visible presence of kami (gods), forest spirits and demons, Prince Ashitaka’s central struggle against a hate that threatens to spill out from within, and the unknowable nature of Mononoke-hime herself make this an unforgettable allegory for our times.
-
-You can find more info on poet Erica Hesketh on our event listing here: https://lewisham.events.mylibrary.digital/event?id=267539
-
-You can watch the trailer for Princess Mononoke here: https://www.youtube.com/watch?v=4OiMOHRDs14
-
-You can read more reviews for Princess Mononoke on Letterboxd: https://letterboxd.com/film/princess-mononoke/
+You can watch the trailer for Seeking Mavis Beacon here: https://www.youtube.com/watch?v=pUrO0blAJOk
+You can read more reviews for Seeking Mavis Beacon on Letterboxd: https://letterboxd.com/film/seeking-mavis-beacon/
 
 
-Short Film Screening and Discussion Group
+Alma’s Rainbow
 =================================================================
 
 
-Thursday 24th September – 6:00 -7:00pm
+Ayoka Chenzira – 1994 – 1H25M – Cert. 15 – USA
 -----------------------------------------------------------------
 
-Watch an exclusive short film screening So Darling, Play Your Violin: https://queereast.org.uk/programme/so-darling-play-your-violin-%f0%9d%84%86/ (2024) created by poet Yuwei 魚尾, before discussing the rest of this month’s screenings with a selection of ESEA snacks!
+
+Thursday 22nd October – 6:00pm
+-----------------------------------------------------------------
+
+A coming-of-age comedy-drama about three African American women living in Brooklyn, Alma’s Rainbow explores the life of teenager Rainbow Gold (Victoria Gabrielle Platt) as she enters womanhood and navigates standards of beauty, self-image, and the rights women have over their bodies. Rainbow attends a strict parochial school, studies dance, and lives with her strait-laced mother Alma (Kim Weston-Moran), who runs a hair salon in the parlor of their home and disapproves of her daughter’s newfound interest in boys. When Alma’s free-spirited sister Ruby (Mizan Kirby) returns from Paris after a ten-year absence, the sisters clash over what constitutes the “proper” direction for Rainbow’s life. Alma’s Rainbow highlights a multi-layered Black women’s world where the characters live, love, and wrestle with what it means to exert and exercise their agency. An essential film in the ‘90s Black cinema canon, Alma’s Rainbow was written, directed, and produced by award-winning, internationally acclaimed film and video artist Ayoka Chenzira. (Film description courtesy of T A P E: https://www.tapecollective.co.uk/feature-films/almas-rainbow)
+
+You can watch the trailer for Alma’s Rainbow here: https://www.youtube.com/watch?v=UPHGweXT9JM
+You can read more reviews for Alma’s Rainbow on Letterboxd: https://letterboxd.com/film/almas-rainbow/
 
 
-The Scent of Green Papaya
+Please note this screening will take place at Catford Library!
 =================================================================
+
+
+HALLOWEEN FILM SCREENING...
+=================================================================
+
+
+Thursday 29th October – 6:45pm
+-----------------------------------------------------------------
+
+
+Catford Centre, 23-24 Winslade Way, London SE6 4JU
+-----------------------------------------------------------------
+
+Join us for another cult Halloween classic on the big screen, this year in the spooky darkness of Catford Library... Get the date in your diaries, the film will be revealed soon...
+
+
+The Wiz – =================================================================
 
 
 Tran Anh Hung – 1993 – 1H44M – Cert. U – Vietnam
 -----------------------------------------------------------------
 
 
-Friday 25th September – 2:00pm
+Friday 30th October – 2:00pm
 -----------------------------------------------------------------
 
-1950s Saigon through the eyes of Mui, a Vietnamese servant girl. At 10 years-old, Mui leaves her village to work for an affluent, troubled family. As she comes of age, Mui finds work in the household of a pianist she has admired since childhood, and finds their relationship growing in complexity.
+Dorothy Gale, a shy kindergarten teacher from Harlem, is swept away to the magical urban-fantasy Land of Oz where she embarks on a quest to return home. Adapted from the 1974 Broadway musical, the film reimagines the classic story with an all-Black cast, and majority Black creative team. Although critically panned upon its release, the film has since become a cult classic – primarily due to the performances of Diana Ross and Michael Jackson in his first theatrical film role. The film has also been reconsidered in recent years as an allegory for the Black experience in America, and remains an important cultural touchstone in the history of Black cinema.
 
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 -----------------------------------------------------------------
 
-You can watch the trailer for The Scent of Green Papaya here: https://www.youtube.com/watch?v=q2OfJYvjgQ8
-
-You can read more reviews for The Scent of Green Papaya on Letterboxd: https://letterboxd.com/film/the-scent-of-green-papaya/
+You can watch the trailer for The Wiz here: https://www.youtube.com/watch?v=CGtnHaEK66s
+You can read more reviews for The Wiz on Letterboxd: https://letterboxd.com/film/the-wiz/
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
