@@ -116,10 +116,11 @@ Catford Centre, 23-24 Winslade Way, London SE6 4JU
 Join us for another cult Halloween classic on the big screen, this year in the spooky darkness of Catford Library... Get the date in your diaries, the film will be revealed soon...
 
 
-The Wiz – =================================================================
+The Wiz
+=================================================================
 
 
-Tran Anh Hung – 1993 – 1H44M – Cert. U – Vietnam
+Sidney Lumet – 1978 – 2H14M – Cert. U – USA
 -----------------------------------------------------------------
 
 
