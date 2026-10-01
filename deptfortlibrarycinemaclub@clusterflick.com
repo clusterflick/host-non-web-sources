@@ -102,8 +102,12 @@ Please note this screening will take place at Catford Library!
 =================================================================
 
 
-HALLOWEEN FILM SCREENING...
+Blade
 =================================================================
+
+
+Stephen Norrington – 1998 – 2H00M – Cert. 18 – USA
+-----------------------------------------------------------------
 
 
 Thursday 29th October – 6:45pm
@@ -113,7 +117,7 @@ Thursday 29th October – 6:45pm
 Catford Centre, 23-24 Winslade Way, London SE6 4JU
 -----------------------------------------------------------------
 
-Join us for another cult Halloween classic on the big screen, this year in the spooky darkness of Catford Library... Get the date in your diaries, the film will be revealed soon...
+Join us for another cult Halloween classic on the big screen, this year in the spooky darkness of Catford Library... This year’s Halloween screening will be Blade (1998)!
 
 
 The Wiz
