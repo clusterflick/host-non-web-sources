@@ -1,0 +1,87 @@
+[
+  {
+    "name": "QUEERHUB Festival",
+    "url": "https://queerhub.uk/festival",
+    "events": [
+      {
+        "id": "queerhub-2026-10-23",
+        "title": "QUEERHUB Film Festival: Friday",
+        "venue": "lfs.org.uk",
+        "start": "2026-10-23T18:00",
+        "url": "https://queerhub.uk/festival",
+        "description": "Across the two nights, the programme combines shared screenings with a different curated film block each evening, followed by a filmmaker Q&A. After the screenings, the evening opens up into a more relaxed space for conversation, with snacks, filmmakers, guests and the wider QUEERHUB community coming together beyond the screen.",
+        "films": [
+          {
+            "title": "The Swimsuit",
+            "directors": ["Amina Krami"],
+            "year": 2025
+          },
+          { "title": "Fan Letter", "directors": ["Zeb Daemen"], "year": 2024 },
+          {
+            "title": "Clean Slate",
+            "directors": ["Emily May Jampel"],
+            "year": 2025
+          },
+          {
+            "title": "Fish & Chips",
+            "directors": ["Macadie Amoroso"],
+            "year": 2026
+          },
+          {
+            "title": "At the Twilight of Dawns",
+            "directors": ["Tomy Cadic"],
+            "year": 2025
+          },
+          {
+            "title": "THIS TOWN AIN'T BIG ENOUGH FOR THE BOTH OF US",
+            "directors": ["Ben Stitch"],
+            "year": 2026
+          },
+          {
+            "title": "Quinn",
+            "directors": ["Stefano Usberghi", "Gianluca Mangiasciutti"],
+            "year": 2026
+          }
+        ]
+      },
+      {
+        "id": "queerhub-2026-10-24",
+        "title": "QUEERHUB Film Festival: Saturday",
+        "venue": "lfs.org.uk",
+        "start": "2026-10-24T17:30",
+        "url": "https://queerhub.uk/festival",
+        "description": "Across the two nights, the programme combines shared screenings with a different curated film block each evening, followed by a filmmaker Q&A. After the screenings, the evening opens up into a more relaxed space for conversation, with snacks, filmmakers, guests and the wider QUEERHUB community coming together beyond the screen.",
+        "films": [
+          {
+            "title": "Full Fat",
+            "directors": ["Louisa Connolly-Burnham"],
+            "year": 2026
+          },
+          {
+            "title": "The Motorcycle",
+            "directors": ["Matteo Giampetruzzi"],
+            "year": 2025
+          },
+          {
+            "title": "Midnight Bloom",
+            "directors": ["Adam Fergler"],
+            "year": 2026
+          },
+          {
+            "title": "You and Me makes Three",
+            "directors": ["Emmalie El fadli"],
+            "year": 2025
+          },
+          { "title": "Cris", "directors": ["Jonay García"], "year": 2025 },
+          {
+            "title": "A Tattoo",
+            "directors": ["Kamil Dobrosielski"],
+            "year": 2026
+          },
+          { "title": "Baby Talk", "directors": ["Lizzie Cater"], "year": 2025 },
+          { "title": "Magic 8", "directors": ["Robyn Faye"], "year": 2026 }
+        ]
+      }
+    ]
+  }
+]
