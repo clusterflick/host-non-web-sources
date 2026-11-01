@@ -1,13 +1,20 @@
-Just wanted to say a huge thank you to all who came out for September’s Film Screenings x Poetry Readings season! If you have any feedback about these screenings please do let me know, as it’s a format I think I’ll bring back at some point in the new year, but I hope everyone enjoyed the poetry introductions!
+We’ve got an amazing month of cinema ahead!
 
-This month, I am very excited to announce that the incredible T A P E Collective: https://www.tapecollective.co.uk/ have programmed the films for this year’s Black History Month. T A P E is a UK-based film company working across exhibition and distribution to platform the works of global majority filmmakers, championing films that have previously fallen through the cracks to help them achieve the cult status they deserve! Asa result, we have an absolutely fantastic line up this month. And I know many of you will be pleased to see Saint Omer first on the list, after we were unable to show it last year!
+Thanks to all who voted on this month’s films! The most popular films ended up being those inspired by the German Expressionist movement, which I think will give a really nice lead up to watching one of the most definitive films of the era – our Films in the Foyer screening of The Cabinet of Dr. Caligari!
 
-I’m also really happy to announce that our annual Halloween screening will be back on Thursday 29th October! Please note that due to scheduling conflicts, this screening will be happening at Catford Library, so there won’t be a screening or discussion group at Deptford on that day. We’ll still be getting out the big screen and projector, and the film has also been picked by T A P E, so I can tell you we’re in for a fun night... I will be revealing the film title very soon!
+After the success of last year’s very sold out screening of Metropolis with live score, this year the film will be accompanied by a live pianist from The Lucky Dog Picturehouse: https://theluckydogpicturehouse.com/! You can get your tickets for Dr Caligari here: https://lewisham.events.mylibrary.digital/event?id=381149 before they sell out – we always take walk in’s if we have the space, but ticket holders will be given priority. More info on this screening in the schedule below!
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Before we get to the schedule, just wanted to share this callout for short films! Lovely Jess who works at the lounge is organising a fundraising event for Saaj Raja’s exciting new play Bad Indian, part of which will include a South Asian short film screening. If you’re a South Asian film maker, click here: https://forms.gle/RriJktcj993xhkEp8 for more info and to submit your film. Deadline to submit is this Thursday 1 October!
+Before we get to DLCC, there are three fantastic free cinema events happening around Deptford this month I wanted to plug to you all first:
+-----------------------------------------------------------------
+
+This coming Tuesday (3rd November), friends-of-the-club Meet Me At are holding their very own mini film festival: https://www.entelechyarts.org/meet-me-at-the-movies-film-festival from 10.30am-2.30pm. There’ll be film screenings, zoetrope making and even a foley sound workshop making sounds to silent German Expressionist film! This event is for over 65s.
+
+On Friday 6th November, New Cross and Deptford Free Film Festival are back with their free launch event: https://freefilmfestivals.org/event/festival-launch-and-free-screening/ at The Bear Church! They’ll be screening Little Miss Sunshine, as well giving anyone interested a chance to chat about volunteering for the festival, which will happen again in April!
+
+Again at The Bear Church, on Tuesday 17th November, they’ll be screening The People’s Emergency Briefing: https://www.eventbrite.co.uk/e/film-screening-peoples-emergency-briefing-tickets-2002431949866?aff=oddtdtcreator&keep_tld=true. This a 50-minute film on the threats to British life from ongoing damage to nature and to our climate. The screening will be followed by a panel discussion and facilitated conversation with the audience, giving everyone an opportunity to reflect on the issues raised and explore what we can do in response.
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
@@ -18,130 +25,118 @@ To read the Deptford Library Cinema Club FAQs, please scroll to the bottom of th
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
 
 
-Film Schedule for October – Black History Month with T A P E: https://www.tapecollective.co.uk/
+Film Schedule for November – The Imagined Worlds of German Expressionism
 =================================================================
 
 
 The screenings are all free to attend and open to all. There is no need to book a ticket (unless otherwise stated), just turn up!
 -----------------------------------------------------------------
 
-To view the full schedule on Letterboxd, please click here!: https://boxd.it/XyeXQ$dd86YVR0c9qiQTnK You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
-
-Click here to download this month’s schedule as a PNG image.: https://documents.service.gov.uk/d/XH8IfHJuTAq2ghu6bIkqLQ/vSPTY0sLTwSw2YckXyLaLg?key=fT-_MUmoL5WMh7B9JP5vAnwM51Ci_Cm10pCaZpe8fgI
+To view the full schedule on Letterboxd, please click here!: https://boxd.it/Ykz2i$9C1d2oT9FaGE9fgI You can return to it on your Letterboxd profile anytime by clicking through to ‘Lists’ then ‘Shared with you’.
 
 
-Saint Omer
+The Lodger: A Story of the London Fog
 =================================================================
 
 
-Alice Diop – 2023 – 2H02M – Cert. 12 – France
+Alfred Hitchcock – 1927 – 1H38M – Cert. PG – Britain
 -----------------------------------------------------------------
 
 
-Thursday 1st October – 6:00pm
+Thursday 5th November – 6:00pm
 -----------------------------------------------------------------
 
-A novelist attends the trial of a woman accused of killing her 15-month-old daughter by abandoning her to the rising tide on a beach in northern France. But as the trial continues, her own family history, doubts, and fears about motherhood are steadily dislodged as the life story of the accused is gradually revealed. Primarily a documentarian (some of you may remember Diop’s fantastic film Dahomey which we screened last year), this is Diop’s first narrative feature, although its heavily inspired by her own experience of attending the real-life trial of Fabienne Kabou, who was trialled for a similar case. Described perfectly by the Criterion Collection, by expertly “interweaving complex themes of mother-daughter bonds, immigrant alienation, and postcolonial trauma into a piercing portrait of two mysteriously connected women, Diop forgoes mere questions of guilt and innocence in order to plumb the unsettling unknowability of the human soul.”
+A mysterious serial killer brutally murders young blond women by stalking them in the night fog of London. One sinister night, a young man who claims his name is Jonathan Drew arrives at the guest house run by the Bunting family and rents a room. Despite a brewing romance with the Bunting’s daughter Daisy, Drew’s behaviour cannot help but rouse suspicion that he may be the murderer.
+Though his third feature, The Lodger is the earliest surviving Hitchcock film that we have access to today. Hitchcock himself later referred to The Lodger as “the first true Hitchcock movie”, and indeed it sets up many recurring themes and motifs  that are now recognized as key elements of Hitchcock’s oeuvre. The Lodger was also the first film Hitchock made in the UK, having spent the beginning of his career learning from key players in the German Expressionist movement, such as  Fritz Lang and F. W. Murnau. According to June Tripp who played Daisy in the film, “fresh from Berlin, Hitch was so imbued with the value of unusual camera angles and lighting effects with which to create and sustain dramatic suspense that often a scene which would not run for more than three minutes on the screen would take a morning to shoot.”.
 
-You can watch the trailer for Saint Omer here: https://www.youtube.com/watch?v=iWw-EyrG5Sw
-You can read more reviews for Saint Omer on Letterboxd: https://letterboxd.com/film/saint-omer/
+You can watch the trailer for The Lodger here: https://www.youtube.com/watch?v=dfyhFWoNARk
+You can read more reviews for The Lodger on Letterboxd: https://letterboxd.com/film/the-lodger-a-story-of-the-london-fog/
 
 
-Burning an Illusion
+Suspiria
 =================================================================
 
 
-Menelik Shabazz – 1981 – 1H45M – Cert. 15 – Britain
+Dario Argento – 1977 – 1H35M – Cert. 18 – Italy
 -----------------------------------------------------------------
 
 
-Thursday 8th October – 6:00pm
+Thursday 12th November – 6:00pm
 -----------------------------------------------------------------
 
-A young black woman in England becomes increasingly frustrated with her life with her lazy, demanding boyfriend, and with the help of friends seeks something better. Another documentarian with his first narrative feature (locals will be interested in Blood Ah Go Run (1981), which features a snapshot from the protests following the New Cross fire), Shabazz’s fiction debut was only the second British feature to be made by a Black director in the UK. With its equally unprecedented centring of a black female character for the time, Burning an Illusion is an unmissable piece of British cinema.
+Aspiring ballerina Suzy Banyon enrols at a prestigious German dance academy, only to uncover the terrifying mysteries kept hidden by its faculty in Dario Argento’s phantasmagoric journey into the occult.
 
-You can watch the trailer for Burning an Illusion here: https://www.youtube.com/watch?v=XPI86WEv1Zw
-You can read more reviews for Burning an Illusion on Letterboxd: https://letterboxd.com/film/burning-an-illusion/
+Recognised as one the most influential films in the horror genre, and the inspiration for Luca Guadagnino’s 2018 remake of the same name, Suspiria injects the dark world of German Expressionism with a flush of glorious technicolour. From the BFI: https://www.bfi.org.uk/features/suspiria-dario-argento-influences – “Robert Wiene’s German Expressionist oddity, The Cabinet of Dr. Caligari, is a key influence on Argento’s entire career but on Suspiria especially. This pioneering arthouse horror experience is striking for its outrageously mannered approach to its sets and lighting, which are designed specifically to create an unsettling aesthetic and a dramatic impression upon the viewer. The film’s revelling in artificiality provided a template for the Italian auteur to follow and riff on. “For Suspiria I was inspired by everything that German Expressionism means; dreams, provocations, unreality, and psychoanalysis,” Argento commented.”
+
+You can watch the trailer for Suspiria here: https://www.youtube.com/watch?v=5Y0EEqtWrJI
+You can read more reviews for Suspiria on Letterboxd: https://letterboxd.com/film/suspiria/
 
 
-Seeking Mavis Beacon
+Eraserhead
 =================================================================
 
 
-Jazmin Jones – 2025 – 1H42M – Cert. 15 – USA
+David Lynch – 1977 – 1H29M – Cert. 18 – USA
 -----------------------------------------------------------------
 
 
-Thursday 15th October – 6:00pm
+Thursday 19th November – 6:00pm
 -----------------------------------------------------------------
 
-Filmmakers Jazmin Jones and Olivia McKayla Ross film their DIY investigation to uncover the woman behind the face of ‘Mavis Beacon Teaches Typing’, an educational software programme developed in the 1980s. Its defining features permanently live on in the filmmakers’ collective memory – the elegant, smiling Black woman in the cream suit marching off to her high-rise job on the cover of the package and the Black hands with 3inch – long acrylic fingernails, overlaid on the screen that clattered as Beacon typed in tandem with her users. Retailers in the 80s were convinced a software programme featuring a dark-skinned Black woman wouldn’t sell, but it ended up becoming one of the most successful and lucrative educational products of all time. What became of the influential cover model who vanished decades ago? Their sleuthing uncovers a shocking revelation. What follows leads Jones and Ross to question, in the age of AI and technological omnipresence, who does our image really belong to?  (Film description courtesy of T A P E: https://www.tapecollective.co.uk/feature-films/seeking-mavis-beacon)
+First-time father Henry Spencer tries to survive his industrial environment, his angry girlfriend, and the unbearable screams of his newly born mutant child.
+Eraserhead was Lynch’s first feature film, with production starting whilst he was still in film school, and taking several years to make. Drawing from the German Expressionist tradition of using shadows, sharp contrasts and warped, hyper-stylised architecture to externalise a character’s psychological state, the film’s plot acts as secondary to its bold and confronting imagery, which is also heavily influenced by surrealism. Given these elements, the film was not considered profitable and was released with little fanfare, and a fair amount of critical confusion (and disgust!). As Lynch’s career grew however, so did the film’s critical reception and it is now considered an absolute cult classic, with particularly the film’s meticulously layered soundtrack being critically praised.
 
-You can watch the trailer for Seeking Mavis Beacon here: https://www.youtube.com/watch?v=pUrO0blAJOk
-You can read more reviews for Seeking Mavis Beacon on Letterboxd: https://letterboxd.com/film/seeking-mavis-beacon/
+You can watch the trailer for Eraserhead here: https://www.youtube.com/watch?v=7WAzFWu2tVw
+You can read more reviews for Eraserhead on Letterboxd: https://letterboxd.com/film/eraserhead/
 
 
-Alma’s Rainbow
+Films in the Foyer – Imagined Worlds Screening
 =================================================================
 
 
-Ayoka Chenzira – 1994 – 1H25M – Cert. 15 – USA
------------------------------------------------------------------
-
-
-Thursday 22nd October – 6:00pm
------------------------------------------------------------------
-
-A coming-of-age comedy-drama about three African American women living in Brooklyn, Alma’s Rainbow explores the life of teenager Rainbow Gold (Victoria Gabrielle Platt) as she enters womanhood and navigates standards of beauty, self-image, and the rights women have over their bodies. Rainbow attends a strict parochial school, studies dance, and lives with her strait-laced mother Alma (Kim Weston-Moran), who runs a hair salon in the parlor of their home and disapproves of her daughter’s newfound interest in boys. When Alma’s free-spirited sister Ruby (Mizan Kirby) returns from Paris after a ten-year absence, the sisters clash over what constitutes the “proper” direction for Rainbow’s life. Alma’s Rainbow highlights a multi-layered Black women’s world where the characters live, love, and wrestle with what it means to exert and exercise their agency. An essential film in the ‘90s Black cinema canon, Alma’s Rainbow was written, directed, and produced by award-winning, internationally acclaimed film and video artist Ayoka Chenzira. (Film description courtesy of T A P E: https://www.tapecollective.co.uk/feature-films/almas-rainbow)
-
-You can watch the trailer for Alma’s Rainbow here: https://www.youtube.com/watch?v=UPHGweXT9JM
-You can read more reviews for Alma’s Rainbow on Letterboxd: https://letterboxd.com/film/almas-rainbow/
-
-
-Please note this screening will take place at Catford Library!
+The Cabinet of Dr. Caligari with Live Score
 =================================================================
 
 
-Blade
+Robert Wiene – 1920 – 1H17M – Cert. U – Germany
+-----------------------------------------------------------------
+
+
+Thursday 30th October – 6:45pm
+-----------------------------------------------------------------
+
+Live score from The Lucky Dog Picturehouse: https://theluckydogpicturehouse.com/
+
+In the ultimate celebration of German Expressionism, enter the unique imagined world of The Cabinet of Dr Caligari through the big screen in Deptford Library’s front foyer, accompanied by Tom Temple Marlow from The Lucky Dog Picturehouse on piano.
+
+At a local carnival in a small German town, hypnotist Dr. Caligari presents the somnambulist Cesare, who can purportedly predict the future of curious fairgoers. But at night, the doctor wakes Cesare from his sleep to enact his evil bidding… One of the most iconic masterpieces in cinema history, Robert Wiene’s Das Cabinet des Dr Caligari shook filmgoers worldwide and changed the direction of the art form. Incalculably influential, the film’s nightmarishly jagged sets, sinister atmospheric and psychological emphasis left an immediate impact in its wake (horror, film noir, and gothic cinema would all be shaped directly by it). But this diabolical tale nevertheless stands alone – now more mesmerising than ever in this definitive restoration.
+
+You can watch the trailer for The Cabinet of Dr. Caligari here: https://www.youtube.com/watch?v=gkPdvRontMc
+You can read more reviews for The Cabinet of Dr. Caligari on Letterboxd: https://letterboxd.com/film/the-cabinet-of-dr-caligari-1920/
+You can get your free tickets for this screening here: https://lewisham.events.mylibrary.digital/event?id=381149
+
+
+The Testament of Dr. Mabuse
 =================================================================
 
 
-Stephen Norrington – 1998 – 2H00M – Cert. 18 – USA
+Fritz Lang – 1933 – 2H04M – Cert. 12 – Germany
 -----------------------------------------------------------------
 
 
-Thursday 29th October – 6:45pm
+Friday 27th November – 2:00pm
 -----------------------------------------------------------------
 
-
-Catford Centre, 23-24 Winslade Way, London SE6 4JU
------------------------------------------------------------------
-
-Join us for another cult Halloween classic on the big screen, this year in the spooky darkness of Catford Library... This year’s Halloween screening will be Blade (1998)!
-
-
-The Wiz
-=================================================================
-
-
-Sidney Lumet – 1978 – 2H14M – Cert. U – USA
------------------------------------------------------------------
-
-
-Friday 30th October – 2:00pm
------------------------------------------------------------------
-
-Dorothy Gale, a shy kindergarten teacher from Harlem, is swept away to the magical urban-fantasy Land of Oz where she embarks on a quest to return home. Adapted from the 1974 Broadway musical, the film reimagines the classic story with an all-Black cast, and majority Black creative team. Although critically panned upon its release, the film has since become a cult classic – primarily due to the performances of Diana Ross and Michael Jackson in his first theatrical film role. The film has also been reconsidered in recent years as an allegory for the Black experience in America, and remains an important cultural touchstone in the history of Black cinema.
+Locked away in an asylum for a decade and teetering between life and death, the criminal mastermind Doctor Mabuse has scribbled his last will and testament: a manifesto establishing a future empire of crime. When the document’s nefarious writings start leading to terrifying parallels in reality, it’s up to Berlin’s star detective, Inspector Lohmann to connect the most fragmented, maddening clues in a case unlike any other. Lang put slogans and ideas expounded by the Nazis into the mouth of a madman, warning his audience of an imminent menace, which was soon to become a reality. Nazi Minister of Information Joseph Goebbels saw the film as an instruction manual for terrorist action against the government and banned it for “endangering public order and security.” A landmark of mystery and suspense for countless espionage and noir thrillers to come, and made towards the end of the era, Dr Mabuse is often considered a final tribute to the German Expressionist movement.
 
 
 This screening is a collaboration between The Albany’s Meet Me At club for over 60’s. The film is scheduled at an earlier time for greater accessibility, but is open to everyone just like every other screening!
 -----------------------------------------------------------------
 
-You can watch the trailer for The Wiz here: https://www.youtube.com/watch?v=CGtnHaEK66s
-You can read more reviews for The Wiz on Letterboxd: https://letterboxd.com/film/the-wiz/
+You can watch the trailer for The Testament of Dr. Mabuse here: https://www.youtube.com/watch?v=IEEjeviFMeY
+You can read more reviews for The Testament of Dr. Mabuse on Letterboxd: https://letterboxd.com/film/the-testament-of-dr-mabuse/
 
 =-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=
-
 
 Deptford Library Cinema Club FAQs:
 =================================================================
