@@ -102,7 +102,7 @@ Robert Wiene – 1920 – 1H17M – Cert. U – Germany
 -----------------------------------------------------------------
 
 
-Thursday 30th October – 6:45pm
+Thursday 26th November – 6:45pm
 -----------------------------------------------------------------
 
 Live score from The Lucky Dog Picturehouse: https://theluckydogpicturehouse.com/
