@@ -83,5 +83,27 @@
         ]
       }
     ]
+  },
+  {
+    "name": "SW Stitch Society Knitflix Club",
+    "url": "https://swstitchsociety.co.uk/events",
+    "events": [
+      {
+        "id": "swstitchsociety-knitflix-2026-11-25",
+        "title": "Knitflix Club: Love Actually",
+        "venue": "sanctumsoho.com",
+        "start": "2026-11-25T19:00",
+        "url": "https://swstitchsociety.co.uk/events/p/knitflix-club-nov-25",
+        "description": "Bring your yarn, grab a drink, and knit or crochet alongside this Christmas classic at our lights-on cinema event! We'll keep the cinema room lit during the screening so you can work on your project alongside the film. There is a bar available at the venue. You may arrive up to 30mins early to grab a drink and meet other stitchers and compare WIPs before the film starts. This is a relaxed atmosphere, so people are welcome to chat with neighbours and compare notes on Colin Firth! All crafts and skill levels welcome.",
+        "notes": "Lights-on screening for knitting and crochet",
+        "films": [
+          {
+            "title": "Love Actually",
+            "directors": ["Richard Curtis"],
+            "year": 2003
+          }
+        ]
+      }
+    ]
   }
 ]
