@@ -105,5 +105,73 @@
         ]
       }
     ]
+  },
+  {
+    "name": "Mount Street Neighbourhood Holiday Festival",
+    "url": "https://holidayfestival.mountstreetneighbourhood.com",
+    "events": [
+      {
+        "id": "mount-street-holiday-festival-love-actually-2026-11-20",
+        "title": "Love Actually",
+        "venue": "grosvenorchapel.org.uk",
+        "start": "2026-11-20T19:30",
+        "url": "https://holidayfestival.mountstreetneighbourhood.com/tickets",
+        "description": "Join us for a cosy evening at Grosvenor Chapel, a memorable location from Love Actually, with a screening of the holiday classic. Enjoy the film with a complimentary festive treat box from Farm Shop and glass of Champagne. Ticket proceeds will support The Homeless Restaurant at Farm Street Church.",
+        "notes": "Choir performance at 7pm before the screening",
+        "films": [
+          {
+            "title": "Love Actually",
+            "directors": ["Richard Curtis"],
+            "year": 2003
+          }
+        ]
+      },
+      {
+        "id": "mount-street-holiday-festival-home-alone-2026-11-21",
+        "title": "Home Alone",
+        "venue": "grosvenorchapel.org.uk",
+        "start": "2026-11-21T13:00",
+        "url": "https://holidayfestival.mountstreetneighbourhood.com/tickets",
+        "description": "Join us for a family favourite at Grosvenor Chapel. Enjoy the film with a complimentary festive treat box from Farm Shop. Ticket proceeds will support The Homeless Restaurant at Farm Street Church.",
+        "films": [
+          {
+            "title": "Home Alone",
+            "directors": ["Chris Columbus"],
+            "year": 1990
+          }
+        ]
+      },
+      {
+        "id": "mount-street-holiday-festival-grinch-2026-11-21",
+        "title": "How The Grinch Stole Christmas",
+        "venue": "grosvenorchapel.org.uk",
+        "start": "2026-11-21T16:00",
+        "url": "https://holidayfestival.mountstreetneighbourhood.com/tickets",
+        "description": "Join us for a family favourite at Grosvenor Chapel. Enjoy the film with a complimentary festive treat box from Farm Shop. Ticket proceeds will support The Homeless Restaurant at Farm Street Church.",
+        "films": [
+          {
+            "title": "How the Grinch Stole Christmas",
+            "directors": ["Ron Howard"],
+            "year": 2000
+          }
+        ]
+      },
+      {
+        "id": "mount-street-holiday-festival-love-actually-2026-11-21",
+        "title": "Love Actually",
+        "venue": "grosvenorchapel.org.uk",
+        "start": "2026-11-21T19:30",
+        "url": "https://holidayfestival.mountstreetneighbourhood.com/tickets",
+        "description": "Join us for a cosy evening at Grosvenor Chapel, a memorable location from Love Actually, with a screening of the holiday classic. Enjoy the film with a complimentary festive treat box from Farm Shop and glass of Champagne. Ticket proceeds will support The Homeless Restaurant at Farm Street Church.",
+        "notes": "Choir performance at 7pm before the screening",
+        "films": [
+          {
+            "title": "Love Actually",
+            "directors": ["Richard Curtis"],
+            "year": 2003
+          }
+        ]
+      }
+    ]
   }
 ]
