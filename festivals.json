@@ -173,5 +173,53 @@
         ]
       }
     ]
+  },
+  {
+    "name": "Nina's Place",
+    "url": "https://www.instagram.com/ninas.place/",
+    "events": [
+      {
+        "id": "ninas-place-2026-11-18",
+        "title": "Faya Dayi",
+        "venue": "instagram.com-ridleyroadsocialclub",
+        "start": "2026-11-18T18:45",
+        "url": "https://docs.google.com/forms/d/e/1FAIpQLSdw1Ozp8xcYsz-8Qgf2pHyy5vY7SNqNy1cHyoTMYkiediUQJA/viewform",
+        "notes": "Sign up in advance, £4 on the door",
+        "films": [
+          {
+            "title": "Faya Dayi",
+            "directors": ["Jessica Beshir"],
+            "year": 2021
+          }
+        ]
+      }
+    ]
+  },
+  {
+    "name": "Anti-Colonial Film Club",
+    "url": "https://www.instagram.com/anticolonialfilmclub/",
+    "events": [
+      {
+        "id": "anticolonialfilmclub-2026-11-19",
+        "title": "THE SECRET FORMULA and LA HORA DECISIVA",
+        "venue": "kcl.ac.uk-strand",
+        "start": "2026-11-19T19:00",
+        "url": "https://docs.google.com/forms/d/e/1FAIpQLSepuk9EuYNtHbrmZoiX-u6Q7qWihfeX46m6lQgmZGFw-Ylp5Q/viewform",
+        "description": "This week, to mark the anniversary of the Mexican Revolution, we’re screening THE SECRET FORMULA (Rubén Gámez, 1965) and LA HORA DECISIVA (Azucena Losana, 2020), two works that explore the country’s history through the lens of experimental cinema.\n\nOn November 20, 1910, a popular uprising against the dictatorship of Porfirio Díaz, who had ruled alongside an oligarchy for over thirty years, marked the beginning of a decade-long armed struggle. The revolution was fuelled by widespread discontent over extreme inequality, land dispossession, foreign intervention, and labour exploitation, and ultimately led to the drafting of Mexico’s present-day Constitution.\n\nA landmark of Latin American experimental cinema, THE SECRET FORMULA presents an acerbic X-ray of Mexican national identity. Gámez’s anarchic montage collides with the dreamlike logic of Juan Rulfo’s magical realism to deliver a pointed critique of the intellectual and ecclesiastical establishment, US cultural imperialism, and consumer society. Coca-Cola, injected into a man’s bloodstream, unleashes hallucinatory visions under a cherub’s watchful eye.\n\nShot on vibrant Super 8 film, LA HORA DECISIVA turns its gaze to the rituals surrounding the revolution’s commemoration today. Portraits of national heroes line the streets in dazzling displays of neon light, as passersby in Mexico City’s historic centre immerse themselves in the spectacle and spirit of the occasion. Somewhere amidst the crowd, the politics of the revolution seem to dissolve into the pageantry of its remembrance.\n\nA heartfelt thank you to Azucena Losana for sharing her film with us. This screening is programmed in collaboration with Lola Lemke.",
+        "notes": "King's Building KIN 204",
+        "films": [
+          {
+            "title": "The Secret Formula",
+            "directors": ["Rubén Gámez"],
+            "year": 1965
+          },
+          {
+            "title": "La Hora Decisiva",
+            "directors": ["Azucena Losana"],
+            "year": 2020
+          }
+        ]
+      }
+    ]
   }
 ]
