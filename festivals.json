@@ -221,5 +221,26 @@
         ]
       }
     ]
+  },
+  {
+    "name": "Films4Freedom",
+    "url": "https://www.instagram.com/films4freedom/",
+    "events": [
+      {
+        "id": "films4freedom-2026-11-26",
+        "title": "Prison as a tool of empire: The Spook Who Sat by the Door",
+        "venue": "instagram.com-green-alley-studios",
+        "start": "2026-11-26T18:30",
+        "url": "https://www.instagram.com/p/DfpF63LoQPc/",
+        "notes": "Fundraising screening, with donations going to mutual aid in Gaza and Lebanon",
+        "films": [
+          {
+            "title": "The Spook Who Sat by the Door",
+            "directors": ["Ivan Dixon"],
+            "year": 1973
+          }
+        ]
+      }
+    ]
   }
 ]
